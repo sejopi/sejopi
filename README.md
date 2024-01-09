@@ -6,7 +6,7 @@
 
 > ***I recommend going to my rentry because carrd site has flashing lights gif background. (im not changing it)***
 
-*You will often see me with these skins, if you see anyone else using these somewhere and does not have my discord display thats not me, those are whores, aka ***skin stealers***.*
+*You will often see me with these skins, if you see anyone else using these somewhere and does not have my discord display (or github) thats not me, those are whores, aka ***skin stealers***.*
 
 ![](https://media.discordapp.net/attachments/983718046466187304/1194185057900974141/pony-town-meworppr-lie-zzz-blinking-padded-toy100-6x.gif?ex=65af6e80&is=659cf980&hm=ec677c2f2944976c698b4de92ce2bc7571c4c6626c96fefa147ae8e5f8848269&=&width=247&height=238) ![](https://media.discordapp.net/attachments/983718046466187304/1194185973085511681/pony-town-Pure_Chaos-fly-blinking-padded-ponyplush-6x.gif?ex=65af6f5a&is=659cfa5a&hm=e39ecd36ac7ca70787348d642a9b31f8326a1fe28f65ce14473d420ffe9e58d9&=&width=220&height=301)
 
