@@ -14,5 +14,5 @@
 𝘐 𝘳𝘦𝘤𝘰𝘮𝘮𝘦𝘯𝘥 𝘨𝘰𝘪𝘯𝘨 𝘵𝘰 𝘮𝘺 [𝘳𝘦𝘯𝘵𝘳𝘺](https://rentry.co/rovanski) 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 [𝘤𝘢𝘳𝘳𝘥](https://softhole.carrd.co) 𝘴𝘪𝘵𝘦 𝘩𝘢𝘴 𝘧𝘭𝘢𝘴𝘩𝘪𝘯𝘨 𝘭𝘪𝘨𝘩𝘵𝘴 𝘨𝘪𝘧 𝘣𝘢𝘤𝘬𝘨𝘳𝘰𝘶𝘯𝘥. (𝘪𝘮 𝘯𝘰𝘵 𝘤𝘩𝘢𝘯𝘨𝘪𝘯𝘨 𝘪𝘵)
 
 <p align="center">
-  <img width="360" height="200" src="https://autism.crd.co/assets/images/gallery05/b5ffb8ae.gif?v=69d6a439">
+  <img width="360" height="200" src="https://autism.crd.co/assets/images/gallery05/b5ffb8ae.gif?v=69d6a439"> <img width="360" height="200" src="https://autism.crd.co/assets/images/gallery05/88a76f17.gif?v=69d6a439"> <img width="360" height="200" src="https://autism.crd.co/assets/images/gallery05/eca8cc10.gif?v=69d6a439">
 </p>
