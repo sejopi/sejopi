@@ -11,7 +11,7 @@
   <img width="800" height="60" src="https://64.media.tumblr.com/98e51830b02a66e2d40f84522b71591e/8b267fede4432ef1-19/s400x600/396620ce1ede066a13a0b312a0a58f7312127efd.gifv">
 </p>
 
-𝘐 𝘳𝘦𝘤𝘰𝘮𝘮𝘦𝘯𝘥 𝘨𝘰𝘪𝘯𝘨 𝘵𝘰 𝘮𝘺 [𝘳𝘦𝘯𝘵𝘳𝘺](https://rentry.co/rovanski) 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 [𝘤𝘢𝘳𝘳𝘥](https://softhole.carrd.co) 𝘴𝘪𝘵𝘦 𝘩𝘢𝘴 𝘧𝘭𝘢𝘴𝘩𝘪𝘯𝘨 𝘭𝘪𝘨𝘩𝘵𝘴 𝘨𝘪𝘧 𝘣𝘢𝘤𝘬𝘨𝘳𝘰𝘶𝘯𝘥. (𝘪𝘮 𝘯𝘰𝘵 𝘤𝘩𝘢𝘯𝘨𝘪𝘯𝘨 𝘪𝘵)
+_I recommend [rentry](https://rentry.co/rovanski) because [carrd](https://softhole.carrd.co) site has flashing light bg (im not changing it)._
 
 <p align="center">
   <img width="360" height="200" src="https://autism.crd.co/assets/images/gallery05/b5ffb8ae.gif?v=69d6a439"> <img width="360" height="200" src="https://autism.crd.co/assets/images/gallery05/88a76f17.gif?v=69d6a439"> <img width="360" height="200" src="https://autism.crd.co/assets/images/gallery05/eca8cc10.gif?v=69d6a439">
