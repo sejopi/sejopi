@@ -5,7 +5,7 @@
 <p align="center">
 this is only for pony town because people are so damned and chronically online lol it doesnt fucking kill you to normalize being friendly and honest there
 <p align="center">
-im gonna go blunt. dont be overly dramatic or emotional around me sure i can be emotional too but im not a weird fuck. dont start harassing me or my mutuals when around yk what else ends up next u'll be hidden.
+im gonna go blunt. dni people who use slurs or racial slurs regardless what. dont be overly dramatic or emotional around me sure i can be emotional too but im not a weird fuck. dont start harassing me or my mutuals when we're around yk what else ends up next u'll be hidden.
 </p>
 
 [I](https://rentry.co/rovanski) | [II](https://softhole.carrd.co)
