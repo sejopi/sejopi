@@ -3,6 +3,10 @@
 </p>
 
 <p align="center">
+  <img width="640" height="150" src="https://64.media.tumblr.com/ddf6efeb31a3e7147ea1dd615aa03eec/5c34175dd61852c8-a2/s640x960/c29f83a1b675204e6b7b6d1db58c9ae441b47500.gifv">
+</p>
+
+<p align="center">
 (⊙＿⊙) （＾＿－）≡★ [♥]]] [♦]]] [♣]]] [♠]]]
 <p align="center">
 this is only for pony town because people are so damned and chronically online lol it doesnt fucking kill you to normalize being friendly and honest there
