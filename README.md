@@ -14,7 +14,7 @@ this is only for pony town because people are so damned and chronically online l
 im gonna go blunt. dni people who use racial slurs regardless what. dont be overly dramatic or emotional around me sure i can be emotional too but im not a weird fuck. dont start harassing me or my mutuals when we're around yk what else ends up next u'll be hidden.
 </p>
 
-[I](https://rentry.co/rovanski) | [II](https://softhole.carrd.co)
+[I](https://rentry.co/ssej0) | [II](https://softhole.carrd.co)
 </p>
 
 <p align="center">
