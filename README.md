@@ -1,5 +1,5 @@
 <p align="center">
-  <img width="1024" height="429" src="https://media.discordapp.net/attachments/983718046466187304/1229344180522975302/Untitled253_20240415161337.png?ex=662f56fc&is=661ce1fc&hm=57c0e89a24ead01ecd849281be677bb559bac6a349f5cd47214ed12f99ce9770&=&format=webp&quality=lossless&width=1024&height=429">
+  <img width="1024" height="429" src="https://file.garden/ZgCyGhdyQ318Ts7s/banner.png">
 </p>
 
 <p align="center">
