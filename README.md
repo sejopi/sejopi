@@ -5,7 +5,7 @@
 
 <div align="center">
   
- **anto is much more worthy than you**
+ **i hate my ego**
 </div>
 
 <p align="center">
