@@ -5,6 +5,11 @@
 
 <div align="center">
   
+![](https://komarev.com/ghpvc/?username=sejopi&color=lightgrey&style=for-the-badge&label=get+out+of+my+profile&abbreviated=true)
+</div>
+
+<div align="center">
+  
  **im familiar with these stuff**
 </div>
 
