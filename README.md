@@ -19,5 +19,5 @@
 
 <div align="center">
   
-imagine being in homestuck fandom and actually uses racial or any slurs while being proud of it, stay away from me like the distance between Malaysia and United States.
+@JerryEatingCheese matters alot more than you
 </div>
