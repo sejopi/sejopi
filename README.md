@@ -5,7 +5,7 @@
 
 <div align="center">
   
- **i hate my ego**
+ **dont make problems you cant handle**
 </div>
 
 <p align="center">
