@@ -85,8 +85,3 @@ $\text{\color{#8ba08b}{ ⤿ I have crowd discomfort, you'd often find me in less
 $\text{\color{#828a87}{↳ I do not have TT/TD bullshit, touching me doesn't piss me off in a pixel pony game. Crowns are appreciated through whisper or publicly. ↲}}$
 
 </p>
-
-<p align="center">
-$\text{\color{#8ba08b}{}}$
-
-</p>
