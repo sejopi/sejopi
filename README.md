@@ -5,7 +5,7 @@
 </div>
 
 > [!NOTE]
-> $\text{\color{#8ba08b}{Links above leads to much more long informations about me that leads to different sites, stay here if youre lazy to read an essay.}}$
+> $\text{\color{#8ba08b}{Links above leads to much more long informations about me that leads to different sites.}}$
 
 <div align="center">
 
