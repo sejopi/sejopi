@@ -1,6 +1,6 @@
 <div align="center">
-  
- ***[I](https://rentry.co/sejopi)*** **|** ***[II](https://www.patreon.com/sejopi)***
+
+ ***[I](https://rentry.co/sejopi)*** **|** ***[II](https://www.patreon.com/sejopi)*** | ***[III](https://arab.org/click-to-help/palestine/)***
   
 </div>
 
