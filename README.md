@@ -35,7 +35,7 @@ $\text{\color{#8ba08b}{☃ Just call me “sinclair” or “sejo” ♞}}$
 </p>
 
 <p align="center">
-$\text{\color{#828a87}{☀ Pronouns are they/them/their[s]☽}}$
+$\text{\color{#828a87}{☀ Pronouns are they/them/their[s] ‒ I'm Bigender + Pansexual.☽}}$
   
 </p>
 
