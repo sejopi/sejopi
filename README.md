@@ -72,7 +72,7 @@ $\text{\color{#828a87}{❛If you are above 18 or below 13, don't send me friend 
 
 <p align="center">
   <img width="360" height="200" src="https://file.garden/ZroW4OcqSGtS0a5j/Nepeta-Leijon-Homestuck-MS-Paint-Adventures-Meulin-Leijon-4504498.gif">
-  <img width="360" height="200" src="https://media.tenor.com/7SRunAUYYmIAAAAM/mephiles-ironic.gif">
+  <img width="360" height="200" src="https://steamuserimages-a.akamaihd.net/ugc/1956280619767212917/ADCA24146DB97BCFE14D56DE7F8FB698315BCEC8/?imw=5000&imh=5000&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=false">
   
 </p>
 
