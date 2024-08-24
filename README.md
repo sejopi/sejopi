@@ -17,6 +17,11 @@
 ![](https://komarev.com/ghpvc/?username=sejopi&color=lightgrey&style=for-the-badge&label=profile+views&abbreviated=true)
 </div>
 
+<div align="center">
+  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&cover_image=true&theme=default&show_offline=true&background_color=8795a1&interchange=true&bar_color=bddfff)](https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&redirect=true)
+</p>
+
 <p align="center">
 $\text{\color{#494060}{@JerryEatingCheese matters alot more than you, better than having to live for once and uses slurs often lol}}$
 $\text{\color{#7a322c}{ ！IMAGES BELOW SHOWS THE MAIN THINGS IM STILL INTERESTED ABOUT (or obsessions.) ！}}$
