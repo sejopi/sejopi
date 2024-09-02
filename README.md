@@ -50,7 +50,7 @@ $\text{\color{#828a87}{☀ Pronouns are they/them/their[s] ‒ I'm Bigender + Pa
 </p>
 
 <p align="center">
-$\text{\color{#8ba08b}{➛ ʻEveryone clearly has FLAWS and here is me diagnosed with ADHD, NPD, Depression and AvPD, they're not good at all.ʼ ☣}}$
+$\text{\color{#8ba08b}{➛ ʻEveryone clearly has FLAWS (Ive taken over actual diagnosis irl, please seek professional help everyone.) I got diagnosed with ADHD, NPD, Depression and AvPD, they're not good at all.ʼ ☣}}$
 
 </p> 
 
