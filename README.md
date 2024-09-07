@@ -10,7 +10,7 @@
 <div align="center">
 
 <p align="center">
-  <img width="80" height="75" src="https://64.media.tumblr.com/555bdc8bed4f8f9d939078c56e7c53ed/tumblr_inline_moysj5F2az1qz4rgp.png">
+  <img width="200" height="200" src="https://file.garden/ZroW4OcqSGtS0a5j/diamond%20eyes.gif">
   
 </p>
 
