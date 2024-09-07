@@ -40,6 +40,10 @@ $\text{\color{#8ba08b}{☃ Just call me “sinclair” or “sejo” ♞}}$
 </p>
 
 <p align="center">
+  <img width="150" height="20" src="https://file.garden/ZroW4OcqSGtS0a5j/flag%20pansexual%20pride%20.GIF">
+</p>
+
+<p align="center">
 $\text{\color{#828a87}{☀ Pronouns are they/them/their[s] ‒ I'm Bigender + Pansexual.☽}}$
   
 </p>
@@ -50,7 +54,11 @@ $\text{\color{#828a87}{☀ Pronouns are they/them/their[s] ‒ I'm Bigender + Pa
 </p>
 
 <p align="center">
-$\text{\color{#8ba08b}{➛ ʻEveryone clearly has FLAWS; I got diagnosed with ADHD, NPD, Depression and AvPD, they're NOT GOOD at all.ʼ ☣}}$
+  <img width="150" height="20" src="https://file.garden/ZroW4OcqSGtS0a5j/orange_brown_yellow%20adhd%20.GIF"
+</p>
+
+<p align="center">
+$\text{\color{#8ba08b}{➛ ʻEveryone clearly has FLAWS; I got diagnosed with ADHD and avpd.ʼ ☣}}$
 
 </p> 
 
@@ -69,6 +77,9 @@ $\text{\color{#828a87}{♦〝I'm really impatient in a conversation, but I'm alr
 $\text{\color{#8ba08b}{‴I'm 15 years old, if you are above 18 or below 13, consider don't talk to me respectfully please.‷}}$
 
 </p> 
+
+<p align="center">
+  <img width="150" height="20" src="https://file.garden/ZroW4OcqSGtS0a5j/homestuck%20green%20nepeta%20_33%20_%20rawwrrrr%20.GIF"
 
 <p align="center">
 $\text{\color{#828a87}{❛If you are above 18 or below 13, don't send me friend request. Even though I disabled this setting often. Nothing personal.❜}}$
