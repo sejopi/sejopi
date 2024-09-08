@@ -10,7 +10,12 @@
 
 <p align="center">
   <img width="200" height="200" src="https://file.garden/ZroW4OcqSGtS0a5j/diamond%20eyes.gif"><img width="300" height="178" src="https://printsforpalestine.com/Animated-Flag-Palestine.gif"><img width="300" height="178" src="https://media2.giphy.com/media/sEFXMaBwEoa0y0uXR5/giphy.gif">
-  
+
+<p align="center">
+$\text{\color{#8ba08b}{Are you currently supporting I̶s̶r̶a̶e̶l̶  instead of Palestine? That's where you're wrong! GET A BRAIN SURGERY SOON FUCKING IDIOT}}$
+
+</p>
+
 </p>
 
 ![](https://komarev.com/ghpvc/?username=sejopi&color=lightgrey&style=for-the-badge&label=profile+views&abbreviated=true)
