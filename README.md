@@ -1,7 +1,6 @@
 <div align="center">
 
  ***[I](https://rentry.co/sejopi)*** **|** ***[II](https://www.patreon.com/sejopi)*** | ***[III](https://arab.org/click-to-help/palestine/)***
-  
 </div>
 
 > [!NOTE]
@@ -10,7 +9,7 @@
 <div align="center">
 
 <p align="center">
-  <img width="200" height="200" src="https://file.garden/ZroW4OcqSGtS0a5j/diamond%20eyes.gif">
+  <img width="200" height="200" src="https://file.garden/ZroW4OcqSGtS0a5j/diamond%20eyes.gif"><img width="300" height="178" src="https://printsforpalestine.com/Animated-Flag-Palestine.gif"><img width="300" height="178" src="https://media2.giphy.com/media/sEFXMaBwEoa0y0uXR5/giphy.gif">
   
 </p>
 
