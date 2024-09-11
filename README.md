@@ -18,7 +18,7 @@ $\text{\color{#8ba08b}{Are you currently supporting I̶s̶r̶a̶e̶l̶  instead 
 
 </p>
 
-![](https://komarev.com/ghpvc/?username=sejopi&color=lightgrey&style=for-the-badge&label=profile+views&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=sejopi&color=lightgrey&style=for-the-badge&label=fancy+shit&abbreviated=true)
 </div>
 
 <div align="center">
