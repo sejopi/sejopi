@@ -31,7 +31,7 @@ $\text{\color{#aadcd7}{Are you currently supporting I̶s̶r̶a̶e̶l̶  instead 
 
 <div align="center">
   
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&cover_image=true&theme=default&show_offline=true&background_color=8795a1&interchange=true&bar_color=bddfff)](https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&cover_image=true&theme=default&show_offline=true&background_color=626f6c&interchange=true&bar_color=b1cdc0&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&redirect=true)
 </p>
 
 <div align="center">
