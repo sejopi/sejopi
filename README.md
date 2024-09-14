@@ -59,6 +59,11 @@ $\text{\color{#aadcd7}{☀ Pronouns are they/them/their[s] ‒ I'm Bigender + Pa
 </p>
 
 <p align="center">
+$\text{\color{#aadcd7}{ᨐᵉᵒʷ ALSO I imitate cats alot, like saying "meow" as self expression. (a habit, self amusement literally) /ᐠ˵- ⩊ -˵マ }}$
+  
+</p>
+
+<p align="center">
   
  <img width="99" height="56" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/fd2fb6b2-5e5f-4714-adc5-fcf39c17d482/d86seez-6defa3f0-8600-4f49-b861-8cb3187abf27.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2ZkMmZiNmIyLTVlNWYtNDcxNC1hZGM1LWZjZjM5YzE3ZDQ4MlwvZDg2c2Vlei02ZGVmYTNmMC04NjAwLTRmNDktYjg2MS04Y2IzMTg3YWJmMjcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.-c9fOFQNBb4tRuTxtdnW1iE1XdHRtScxFGxKyQTANdY">
 
@@ -79,7 +84,7 @@ $\text{\color{#aadcd7}{☀ Pronouns are they/them/their[s] ‒ I'm Bigender + Pa
 </p>
 
 <p align="center">
-$\text{\color{#8ba08b}{☃ Just call me “sinclair” or “sejo” ♞}}$
+$\text{\color{#aadcd7}{☃ Just call me “sinclair” or “sejo” ♞}}$
 
 </p>
 
