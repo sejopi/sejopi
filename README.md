@@ -8,6 +8,11 @@ $\text{\color{#aadcd7}{@JerryEatingCheese matters alot more than you, better tha
 
 </p>
 
+<p align="center">
+$\text{\color{#aadcd7}{i am not familiar or diagnosed with DID/OSDD i dont have that sys SHIT}}$
+
+</p>
+
 <div align="center">
 
  ***[I](https://rentry.co/sejopi)*** **|** ***[II](https://www.patreon.com/sejopi)*** **|** ***[III](https://arab.org/click-to-help/palestine/)***
