@@ -9,7 +9,7 @@ $\text{\color{#aadcd7}{@JerryEatingCheese matters alot more than you, better tha
 </p>
 
 <p align="center">
-$\text{\color{#aadcd7}{i am not familiar or diagnosed with DID/OSDD i dont have that sys SHIT}}$
+$\text{\color{#aadcd7}{i am not familiar or diagnosed with DID/OSDD i dont have that sys things in my "mind"}}$
 
 </p>
 
@@ -90,6 +90,11 @@ $\text{\color{#aadcd7}{ᨐᵉᵒʷ ALSO I imitate cats alot, like saying "meow" 
 
 <p align="center">
 $\text{\color{#aadcd7}{☃ Just call me “sinclair” or “sejo” ♞}}$
+
+<p align="center">
+$\text{\color{#aadcd7}{I use emoticons often mainly like "q_q/q______q - owo/uwu/qwq" to express myself, although I don't use them when I'm joking, mostly im serious}}$
+
+</p>
 
 </p>
 
