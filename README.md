@@ -28,7 +28,7 @@ $\text{\color{#aadcd7}{i am not familiar or diagnosed with DID/OSDD. I don't hav
 
 <p align="center">
 $\text{\color{#aadcd7}{Are you currently supporting I̶s̶r̶a̶e̶l̶  instead of Palestine? That's where you're wrong!}}$
-$\text{\color{#aadcd7}{GET A BRAIN SURGERY SOON FUCKING IDIOT}}$
+$\text{\color{#aadcd7}{GET A BRAIN SURGERY SOON IDIOT}}$
 <div align="center">
 
 ![](https://komarev.com/ghpvc/?username=sejopi&color=lightgrey&style=for-the-badge&label=IIIIIIIIIIIIIIIIIIIIIIIIIIIIII+LOOOOOOOOOVEEEEEEEEEEEEEEEEEEEE+WIIIIIIIIIIIIIIINTERRRRRRRRRRRRRRRRRRRRRRR+:33&abbreviated=true)
