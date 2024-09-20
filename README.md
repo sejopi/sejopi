@@ -120,8 +120,8 @@ $\text{\color{#aadcd7}{, although I don't use them when I'm joking, mostly im se
 </p>
 
 <p align="center">
-$\text{\color{#aadcd7}{➛ Everyone clearly has FLAWS; im diagnosed with adhd and npd (p.s dont demonized/romanticized any clusters a, b and c personality disorders)☣}}$ 
- 
+$\text{\color{#aadcd7}{➛ Everyone clearly has FLAWS; im diagnosed with adhd and npd}}$ 
+$\text{\color{#aadcd7}{(p.s dont demonized/romanticized any clusters a, b and c personality disorders)☣}}$ 
 </p>
 
 <p align="center">
