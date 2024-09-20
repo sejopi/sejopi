@@ -92,7 +92,7 @@ $\text{\color{#aadcd7}{ᨐᵉᵒʷ ALSO I imitate cats alot, like saying "meow" 
 $\text{\color{#aadcd7}{☃ Just call me “sinclair” or “sejo” ♞}}$
 
 <p align="center">
-$\text{\color{#aadcd7}{I use emoticons often mainly like "q_q (or longer underscores) - owo/uwu/qwq" to express myself, although I don't use them when I'm joking, mostly im serious}}$
+$\text{\color{#aadcd7}{I use emoticons often mainly like "q﹏q (or longer underscores) - owo/uwu/qwq" to express myself, although I don't use them when I'm joking, mostly im serious}}$
 
 </p>
 
