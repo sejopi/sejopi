@@ -4,8 +4,9 @@
 </p>
 
 <p align="center">
-$\text{\color{#aadcd7}{@JerryEatingCheese matters alot more than you, better than having to live for once and uses slurs often lol, its never "cool" or funny either}}$
-
+$\text{\color{#aadcd7}{@JerryEatingCheese matters alot more than you, better than having to live for once and uses slurs often lol}}$
+$\text{\color{#aadcd7}{its never "cool" or funny either}}$
+  
 </p>
 
 <p align="center">
