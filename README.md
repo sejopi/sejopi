@@ -9,7 +9,7 @@ $\text{\color{#aadcd7}{@JerryEatingCheese matters alot more than you, better tha
 </p>
 
 <p align="center">
-$\text{\color{#aadcd7}{i am not familiar or diagnosed with DID/OSDD i dont have that sys things in my "mind"}}$
+$\text{\color{#aadcd7}{i am not familiar or diagnosed with DID/OSDD. I don't have over 100+ alters in my head.}}$
 
 </p>
 
