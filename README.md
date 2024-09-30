@@ -38,7 +38,7 @@ $\text{\color{#aadcd7}{GET A BRAIN SURGERY SOON IDIOT}}$
 
 <div align="center">
   
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&cover_image=true&theme=default&show_offline=true&background_color=626f6c&interchange=true&bar_color=b1cdc0&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&cover_image=true&theme=novatorem&show_offline=false&background_color=3f4b49&interchange=false&bar_color=95bac6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 </p>
 
 <div align="center">
