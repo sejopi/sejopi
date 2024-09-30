@@ -11,7 +11,7 @@ $\text{\color{#aadcd7}{its never "cool" or funny either}}$
 
 <p align="center">
 $\text{\color{#aadcd7}{i am not familiar or diagnosed with DID/OSDD. I don't have over 100+ alters in my head.}}$
-$\text{\color{#aadcd7}{I'm also aware its not only about alters}}$
+$\text{\color{#aadcd7}{I'm also aware its not only about alters but also dissociations}}$
 
 </p>
 
