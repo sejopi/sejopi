@@ -17,7 +17,7 @@ $\text{\color{#aadcd7}{I'm also aware its not only about alters but also dissoci
 
 <div align="center">
 
- ***[I](https://rentry.co/sejopi)*** **|** ***[II](https://www.patreon.com/sejopi)*** **|** ***[III](https://arab.org/click-to-help/palestine/)***
+ ***[I · RENTRY ](https://rentry.co/sejopi)*** **|** ***[II · PATREON](https://www.patreon.com/sejopi)*** **|** ***[III](https://arab.org/click-to-help/palestine/)***
 </div>
 
 <p align="center">
