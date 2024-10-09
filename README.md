@@ -127,7 +127,7 @@ $\text{\color{#aadcd7}{(p.s dont demonized/romanticized any cluster a, b and c p
 </p>
 
 <p align="center">
-<img width="99" height="56" src="https://file.garden/ZroW4OcqSGtS0a5j/flag%20disorder%20cluster%20b%20personality%20.png">
+<img width="99" height="56" src="https://file.garden/ZroW4OcqSGtS0a5j/flag%20disorder%20cluster%20c%20personality%20.png">
   
 </p>
 
