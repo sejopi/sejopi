@@ -4,16 +4,16 @@
 </p>
 
 <p align="center">
-  
-[@JerryEatingCheese](github.com/JerryEatingCheese) $\text{\color{#aadcd7}{ matters alot more than you, better than having to live for once and uses slurs often lol}}$
-$\text{\color{#aadcd7}{its never "cool" or funny either}}$ 
+$\text{\color{#aadcd7}{antosh matters alot more than you, better than having to live for once and uses slurs often lol}}$
+$\text{\color{#aadcd7}{its never "cool" or funny either}}$
+
 </p>
 
 <p align="center">
-$\text{\color{#aadcd7}{i am not familiar or diagnosed with DID/OSDD. I don't have over 100+ alters in my head.}}$
-$\text{\color{#aadcd7}{I'm also aware its not only about alters but also dissociations}}$
+$\text{\color{#aadcd7}{i am NOT familiar or diagnosed with DID/OSDD}}$
 
 </p>
+
 
 <div align="center">
 
