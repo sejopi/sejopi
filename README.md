@@ -25,7 +25,7 @@ $\text{\color{#aadcd7}{i am NOT familiar or diagnosed with DID/OSDD}}$
 </p>
 
 <p align="center">
-  <img width="300" height="178" src="https://printsforpalestine.com/Animated-Flag-Palestine.gif"><img width="200" height="200" src="https://media2.giphy.com/media/sEFXMaBwEoa0y0uXR5/giphy.gif">
+  <img width="300" height="178" src="https://cdn.pixabay.com/animation/2022/09/13/17/55/17-55-41-668_512.gif"><img width="200" height="200" src="https://media2.giphy.com/media/sEFXMaBwEoa0y0uXR5/giphy.gif">
 </p>
 
 <p align="center">
