@@ -82,7 +82,7 @@ $\text{\color{#aadcd7}{ᨐᵉᵒʷ ALSO I imitate cats alot, like saying "meow" 
 
 <p align="center">
   <img width="360" height="200" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled124_20240912173318.png">
-  <img width="360" height="200" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled125_20240912143612.png">
+  <img width="360" height="200" src="https://file.garden/ZroW4OcqSGtS0a5j/bloodborne.png">
   
 </p>
 
