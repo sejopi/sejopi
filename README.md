@@ -11,3 +11,7 @@
 <p align="center">
 $\text{\color{#aadcd7}{please reminder i am not familiar or diagnosed with did/osdd}}$
 <div align="center">
+
+<p align="center">
+$\text{\color{#aadcd7}{also dni if you're addictively into porn type of shit or incest when it comes to homestuck I want you to stay rotting dead in an abandoned cemetery}}$
+<div align="center">
