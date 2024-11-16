@@ -14,5 +14,5 @@ $\text{\color{#aadcd7}{please reminder i am not familiar or diagnosed with did/o
 
 <p align="center">
 $\text{\color{#aadcd7}{also dni if you're addictively into porn type of shit or incest when it comes to homestuck}}$
-$\text{\color{#aadcd7}{and I want you to stay rotting dead in an abandoned cemetery with your eyes gouged out}}$
+$\text{\color{#aadcd7}{and I want you to stay rotting being dead in a cemetery with your eyes gouged out}}$
 <div align="center">
