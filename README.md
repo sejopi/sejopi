@@ -13,6 +13,6 @@ $\text{\color{#aadcd7}{please reminder i am not familiar or diagnosed with did/o
 <div align="center">
 
 <p align="center">
-$\text{\color{#aadcd7}{also dni if you're addictively into porn type of shit or incest when it comes to homestuck characters}}$
-$\text{\color{#aadcd7}{and I want you to stay rotting being dead in a cemetery with your eyes gouged out}}$
+$\text{\color{#aadcd7}{dni anyone who addictively loves porn or incest bullshit when it comes to homestuck characters}}$
+$\text{\color{#aadcd7}{i don't want you alive but dead, stridercest is fucking disgusting and you need to get beheaded so soon for liking it}}$
 <div align="center">
