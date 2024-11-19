@@ -5,18 +5,16 @@
 
 <p align="center">
 $\text{\color{#aadcd7}{i have homestuck fixation and a surreal humor}}$
+$\text{\color{#aadcd7}{please do know that I am not familiar or diagnosed with did/osdd}}$
 <div align="center">
-
 
 <div align="center">
 
  ***[RENTRY](https://rentry.co/sejopi)*** **|** ***[PATREON](https://www.patreon.com/sejopi)*** **|** ***[III](https://arab.org/click-to-help/palestine/)***
 </div>
 
-<p align="center">
-$\text{\color{#aadcd7}{please do know that I am not familiar or diagnosed with did/osdd}}$
-<div align="center">
 
 <p align="center">
-$\text{\color{#aadcd7}{DNI anyone who addictively loves porn or incest when it comes to homestuck characters, you can either get beheaded or a brain surgery soon if you like them}}$
+$\text{\color{#aadcd7}{DNI anyone who addictively loves porn or incest when it comes to homestuck characters, you can either get beheaded}}$
+$\text{\color{#aadcd7}{or a brain surgery soon if you like them, I find it extremely disgusting, for example like stridercest}}$
 <div align="center">
