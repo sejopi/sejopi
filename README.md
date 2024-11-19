@@ -14,5 +14,6 @@ $\text{\color{#aadcd7}{please reminder i am not familiar or diagnosed with did/o
 
 <p align="center">
 $\text{\color{#aadcd7}{dni anyone who addictively loves porn or incest bullshit when it comes to homestuck characters}}$
-$\text{\color{#aadcd7}{i don't want you alive but dead, stridercest is fucking disgusting and you need to get beheaded so soon for liking it}}$
+$\text{\color{#aadcd7}{i don't want you alive but dead, stridercest is fucking disgusting and you need to get beheaded}}$
+$\text{\color{#aadcd7}{so soon for liking it}}$
 <div align="center">
