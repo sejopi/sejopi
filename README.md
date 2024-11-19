@@ -15,6 +15,7 @@ $\text{\color{#aadcd7}{please do know that I am not familiar or diagnosed with d
 
 
 <p align="center">
-$\text{\color{#aadcd7}{DNI anyone who addictively loves porn or incest when it comes to homestuck characters, you can either get beheaded}}$
-$\text{\color{#aadcd7}{or a brain surgery soon if you like them, I find it extremely disgusting, for example like stridercest}}$
+$\text{\color{#aadcd7}{DNI anyone who addictively loves porn or incest when it comes to Homestuck characters}}$
+$\text{\color{#aadcd7}{you can either get beheaded or a brain surgery soon if you like incest.}}$
+$\text{\color{#aadcd7}{I find it extremely disgusting and horrendous, best to keep that liking to yourself.}}$
 <div align="center">
