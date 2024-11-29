@@ -20,3 +20,8 @@ $\text{\color{#aadcd7}{you can either get beheaded or a brain surgery soon if yo
 $\text{\color{#aadcd7}{I find it extremely disgusting and horrendous, best to keep that "liking" to yourself.}}$
 $\text{\color{#aadcd7}{(╥﹏╥)}}$
 <div align="center">
+
+<p align="center">
+
+![](https://file.garden/ZroW4OcqSGtS0a5j/this-is-glorpshit-glorp.gif)
+</p>
