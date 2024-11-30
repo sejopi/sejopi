@@ -13,7 +13,6 @@ $\text{\color{#aadcd7}{please do know that I am not familiar or diagnosed with d
  ***[RENTRY](https://rentry.co/sejopi)*** **|** ***[PATREON](https://www.patreon.com/sejopi)*** **|** ***[III](https://arab.org/click-to-help/palestine/)***
 </div>
 
-
 <p align="center">
 $\text{\color{#aadcd7}{DNI anyone who addictively loves porn or incest when it comes to Homestuck characters}}$
 $\text{\color{#aadcd7}{you can either get beheaded or a brain surgery soon if you like incest.}}$
@@ -24,4 +23,5 @@ $\text{\color{#aadcd7}{(╥﹏╥)}}$
 <p align="center">
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/this-is-glorpshit-glorp.gif)
+<img width="220" height="176" src="https://file.garden/ZroW4OcqSGtS0a5j/harp%20seal.gif">
 </p>
