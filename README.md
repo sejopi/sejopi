@@ -24,4 +24,5 @@ $\text{\color{#aadcd7}{(╥﹏╥)}}$
 
 ![](https://file.garden/ZroW4OcqSGtS0a5j/this-is-glorpshit-glorp.gif)
 <img width="220" height="176" src="https://file.garden/ZroW4OcqSGtS0a5j/harp%20seal.gif">
+![](https://file.garden/ZroW4OcqSGtS0a5j/my%20bloody%20america.gif)
 </p>
