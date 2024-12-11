@@ -9,8 +9,9 @@ $\text{\color{#aadcd7}{my github is only applied to pony town}}$
   
 $\text{\color{#aadcd7}{i have homestuck fixation and a surreal humor}}$
 $\text{\color{#aadcd7}{please do know that I am not familiar or diagnosed with did/osdd}}$
+
 $\text{\color{#aadcd7}{im only active in pt with friends}}$
-$\text{\color{#aadcd7}{ | i play more games like project zomboid and l4d2 besides Pony town}}$
+$\text{\color{#aadcd7}{i play more games like project zomboid and l4d2 besides Pony town}}$
 $\text{\color{#aadcd7}{its better than staying afk for a whole year just to flex your stupid playtime}}$
 <div align="center">
 
