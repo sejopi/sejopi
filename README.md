@@ -4,8 +4,13 @@
 </p>
 
 <p align="center">
+
+$\text{\color{#aadcd7}{my github is only applied to pony town}}$
+  
 $\text{\color{#aadcd7}{i have homestuck fixation and a surreal humor}}$
 $\text{\color{#aadcd7}{please do know that I am not familiar or diagnosed with did/osdd}}$
+$\text{\color{#aadcd7}{flexing playtime wont make pt devs award you any shit lol}}$
+$\text{\color{#aadcd7}{do better things besides staying afk so fucking often, regardless if you have supporter tag or not}}$
 <div align="center">
 
 <div align="center">
