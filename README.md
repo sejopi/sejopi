@@ -10,7 +10,7 @@ $\text{\color{#aadcd7}{my github is only applied to pony town}}$
 $\text{\color{#aadcd7}{i have homestuck fixation and a surreal humor}}$
 $\text{\color{#aadcd7}{please do know that I am not familiar or diagnosed with did/osdd}}$
 
-$\text{\color{#aadcd7}{im only active in pt with friends}}$
+$\text{\color{#aadcd7}{im only active in pt with friends BECAUSE I PLAY MORE GAMES BESIDES PONYTOWN}}$
 <div align="center">
 
 <div align="center">
