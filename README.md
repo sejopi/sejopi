@@ -24,3 +24,8 @@ $\text{\color{#aadcd7}{blocking people in the game is free so don't get angry wi
 <img width="220" height="176" src="https://file.garden/ZroW4OcqSGtS0a5j/harp%20seal.gif">
 ![](https://file.garden/ZroW4OcqSGtS0a5j/my%20bloody%20america.gif)
 </p>
+
+<p align="center">
+
+<img width="400" height="400" src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled393.png">
+</p>
