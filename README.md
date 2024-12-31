@@ -5,6 +5,12 @@
 
 <p align="center">
 
+<img width="150" height="56" src="https://file.garden/ZroW4OcqSGtS0a5j/sejopi%20blinkie.gif"><img width="150" height="56" src="https://file.garden/ZroW4OcqSGtS0a5j/sejopi%20hugger%20blinkies.gif">
+
+</p>
+
+<p align="center">
+
 $\text{\color{#aadcd7}{my github is only applied to pt}}$
 
 $\text{\color{#aadcd7}{i play pt only with friends because i play more games besides pony town :3}}$
