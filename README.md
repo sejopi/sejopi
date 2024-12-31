@@ -14,6 +14,12 @@
 
 <p align="center">
 
+<img width="220" height="176" src="https://file.garden/ZroW4OcqSGtS0a5j/angels%20wings.gif">
+
+</p>
+
+<p align="center">
+
 $\text{\color{#aadcd7}{my github is only applied to pt}}$
 
 $\text{\color{#aadcd7}{i play pt only with friends because i play more games besides pony town :3}}$
