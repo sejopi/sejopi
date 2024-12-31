@@ -5,7 +5,10 @@
 
 <p align="center">
 
-<img width="150" height="56" src="https://file.garden/ZroW4OcqSGtS0a5j/sejopi%20blinkie.gif"><img width="150" height="56" src="https://file.garden/ZroW4OcqSGtS0a5j/sejopi%20hugger%20blinkies.gif">
+<img width="250" height="30" src="https://file.garden/ZroW4OcqSGtS0a5j/sejopi_is_a_Seal.gif"><img width="250" height="30" src="https://file.garden/ZroW4OcqSGtS0a5j/antosh%20meow.gif">
+<img width="250" height="30" src="https://file.garden/ZroW4OcqSGtS0a5j/zombie%20lvr.gif"><img width="250" height="30" src="https://file.garden/ZroW4OcqSGtS0a5j/seals_Are_cool.gif">
+
+<img width="250" height="30" src="https://file.garden/ZroW4OcqSGtS0a5j/IM_A_SEAL.gif"><img width="250" height="30" src="https://file.garden/ZroW4OcqSGtS0a5j/antosh_mouse.gif">
 
 </p>
 
