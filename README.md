@@ -22,6 +22,14 @@ $\text{\color{#aadcd7}{yes i am really expressive you cant do shit about it eith
 
 <img width="150" height="120" src="https://file.garden/ZroW4OcqSGtS0a5j/angels%20watching%20over%20me.jpg"><img width="150" height="120" src="https://file.garden/ZroW4OcqSGtS0a5j/this%20user%20is%20an%20angel.png"><img width="150" height="120" src="https://file.garden/ZroW4OcqSGtS0a5j/harp%20seals.png"><img width="150" height="120" src="https://file.garden/ZroW4OcqSGtS0a5j/angel%20stamp.png"><img width="150" height="120" src="https://file.garden/ZroW4OcqSGtS0a5j/angel%20stamp%202.png">
 
+<div align="center">
+
+<img width="341" height="243" src="https://file.garden/ZroW4OcqSGtS0a5j/cloud%20haetae%20cookie.gif">
+
+$\text{\color{#aadcd7}{﹙character: cloud haetae cookie - cookie run kingdom﹚}}$
+
+</p>
+
 <img width="920" height="50" src="https://file.garden/ZroW4OcqSGtS0a5j/white%20sparkles%20divider.gif">
 
 </p>
