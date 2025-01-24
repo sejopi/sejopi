@@ -24,13 +24,13 @@ $\text{\color{#aadcd7}{yes i am really expressive you cant do shit about it eith
 
 <div align="center">
 
-<img width="341" height="243" src="https://file.garden/ZroW4OcqSGtS0a5j/cloud%20haetae%20cookie.gif">
+<img width="341" height="243" src="https://file.garden/ZroW4OcqSGtS0a5j/2502896_88271.gif">
 
-$\text{\color{#aadcd7}{﹙character: cloud haetae cookie - cookie run kingdom﹚}}$
+$\text{\color{#aadcd7}{﹙character: pinecone cookie - cookie run kingdom﹚}}$
 
 </p>
 
-<img width="920" height="50" src="https://file.garden/ZroW4OcqSGtS0a5j/white%20sparkles%20divider.gif">
+<img width="920" height="60" src="https://file.garden/ZroW4OcqSGtS0a5j/white%20sparkles%20divider.gif">
 
 </p>
 
