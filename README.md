@@ -1,8 +1,8 @@
 <div align="center">
 
-$\text{\color{#aadcd7}{D'yeah im only active in Pt with mutuals or Actually busy focusing on better things irl}}$
+$\text{\color{#aadcd7}{hi im rarely active on pony town i have busy school weeks, only online alot more with closest friends}}$
 
-$\text{\color{#aadcd7}{heavy nepeta kinnie mrow meow i love her | melanie -regretevator , karkat, gamzee, scraps, shelly, cofi, gigi kins}}$
+$\text{\color{#aadcd7}{hey have i told you I love harp seals?}}$
 
 </p>
 
