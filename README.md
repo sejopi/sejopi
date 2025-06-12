@@ -2,7 +2,7 @@
 
 $\text{\color{#aadcd7}{hi im rarely active on pony town i have busy school weeks, only online alot more with closest friends}}$
 
-$\text{\color{#aadcd7}{hey have i told you I love harp seals?}}$
+$\text{\color{#aadcd7}{hey have i told you I love harp seals? i lvoe seals, fish n chips, fries, fries, more fries and cats especially black cats. i use they them pronouns + bigender. seals are part of my identity and metaphor atp}}$
 
 </p>
 
