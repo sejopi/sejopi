@@ -1,7 +1,7 @@
 <div align="center">
 
-$\text{\color{#aadcd7}{hi im rarely active on pony town i have busy school weeks, only online alot more with closest}}$
-$\text{\color{#aadcd7}{friends}}$
+$\text{\color{#aadcd7}{hi im rarely active on pony town i have busy school weeks, only}}$
+$\text{\color{#aadcd7}{online alot more with closest friends}}$
 
 $\text{\color{#aadcd7}{hey have i told you I love harp seals? i lvoe seals, fish n chips, fries, fries, more fries and cats especially black cats. i use they}}$
 
