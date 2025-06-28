@@ -3,11 +3,10 @@
 $\text{\color{#aadcd7}{hi im rarely active on pony town i have busy school weeks, only}}$
 $\text{\color{#aadcd7}{online alot more with closest friends}}$
 
-$\text{\color{#aadcd7}{hey have i told you I love harp seals? i lvoe seals, fish}}$
-$\text{\color{#aadcd7}{ n chips, fries, fries, more fries and cats especially}}$
-$\text{\color{#aadcd7}{black cats.}}$
+$\text{\color{#aadcd7}{hey have i told you I love harp seals? i lvoe seals,}}$
+$\text{\color{#aadcd7}{ cats especially black cats fish and chips, fries, fries, more fries.}}$
 
-$\text{\color{#aadcd7}{i use they them pronouns + bigender. 07/10 [♋︎].}}$
+$\text{\color{#aadcd7}{i use they them pronouns + bigender | panroAce. 07/10 [♋︎].}}$
 $\text{\color{#aadcd7}{seals are part of my identity and metaphor at dis}}$
 $\text{\color{#aadcd7}{point. i love seals.}}$
 
