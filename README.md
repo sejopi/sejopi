@@ -2,7 +2,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=courier+new&size=15&pause=1000&color=AADCD7&background=37474547&center=true&vCenter=true&random=true&width=435&lines=sejopi+loves+seals;%3A33+%3C++oyaoya;harp+seals+are+a+honking+bundle+of+fluff)](https://git.io/typing-svg)
 
-$\text{\color{#aadcd7}{༄.° heavy nepeta leijon kinnie, they-them ⊱  ۫ ׅ ✧}}$
+$\text{\color{#aadcd7}{༄.° heavy nepeta leijon & gigi the gachapon kinnie, they-them ⊱  ۫ ׅ ✧}}$
 
 $\text{\color{#aadcd7}{hey have i told you I love harp seals? i lvoe seals,}}$
 $\text{\color{#aadcd7}{ cats especially black cats fish and chips, fries, more fries.}}$
