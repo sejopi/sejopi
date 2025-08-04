@@ -6,6 +6,7 @@ $\text{\color{#aadcd7}{༄.° heavy nepeta leijon and gigi the gachapon kinnie, 
 
 $\text{\color{#aadcd7}{hey have i told you I love harp seals? i lvoe seals,}}$
 $\text{\color{#aadcd7}{ cats especially black cats fish and chips, fries, more fries.}}$
+$\text{\color{#aadcd7}{check out my strawpage for dandys world stuff hehaeh}}$
 
 $\text{\color{#aadcd7}{♬⋆.˚ im rarely active on pony town i have busy school weeks, only}}$
 $\text{\color{#aadcd7}{online alot more with the closest friend ˚୨୧⋆.˚}}$
