@@ -8,7 +8,8 @@ $\text{\color{#aadcd7}{༄.° heavy nepeta leijon kinnie, they-them ⊱  ۫ ׅ �
 </p>
 
 $\text{\color{#aadcd7}{hey have i told you I love harp seals? i lvoe seals,}}$
-$\text{\color{#aadcd7}{ cats especially black cats, fish and chips, fries, more fries.}}$
+$\text{\color{#aadcd7}{ cats especially black cats, fish and chips, fries, more fries. i like regretevator alot!!
+my favorite character is Buck, melanie, null and Infected/Kasper ! !}}$
 $\text{\color{#aadcd7}{check out my strawpage for stuff abt me heahehea}}$
 
 $\text{\color{#aadcd7}{♬⋆.˚ im rarely active on pony town i have busy school weeks... except weekends ゛ ⸝⸝.ᐟ⋆}}$
