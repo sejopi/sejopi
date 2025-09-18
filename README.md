@@ -8,11 +8,12 @@ $\text{\color{#aadcd7}{༄.° heavy nepeta leijon kinnie, they-them ⊱  ۫ ׅ �
 </p>
 
 $\text{\color{#aadcd7}{hey have i told you I love harp seals? i lvoe seals,}}$
-$\text{\color{#aadcd7}{ cats especially black cats, fish and chips, fries, more fries. i like regretevator alot!!
-my favorite character is Buck, melanie, null and Infected/Kasper ! !}}$
+$\text{\color{#aadcd7}{ cats especially black cats, fish and chips, fries, more fries. i like regretevator alot!!}}$
+$\text{\color{#aadcd7}{my favorite character is Buck, melanie, null and Infected/Kasper ! !}}$
+
 $\text{\color{#aadcd7}{check out my strawpage for stuff abt me heahehea}}$
 
-$\text{\color{#aadcd7}{♬⋆.˚ im rarely active on pony town i have busy school weeks... except weekends ゛ ⸝⸝.ᐟ⋆}}$
+$\text{\color{#aadcd7}{♬⋆.˚ im rarely active on pony town i have busy school weeks and would play at some time.゛ ⸝⸝.ᐟ⋆}}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&cover_image=true&theme=novatorem&show_offline=false&background_color=273a34&interchange=true&bar_color=7cb6a3&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
