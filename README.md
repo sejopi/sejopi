@@ -11,7 +11,7 @@ $\text{\color{#aadcd7}{check out my strawpage for stuff abt me heahehea}}$
 
 $\text{\color{#aadcd7}{.ೃ࿔*:･ hey have i told you I love harp seals? i lvoe seals,}}$
 $\text{\color{#aadcd7}{cats especially black cats, fish and chips, fries, more fries. ⋆ ˚｡⋆}}$
-$\text{\color{#aadcd7}{໒꒰՞ ܸ. I LIKE REGRETEVATOR ALOTSZ !! my fc is buck, crem, melanie, null and Infected/Kasper ! ! ♡ ՞꒱ა  ۪ }}$
+$\text{\color{#aadcd7}{໒꒰՞ ܸ. I LIKE REGRETEVATOR ALOTSZ !! my fc is slimyim, buck, crem, melanie, null and Infected/Kasper ! ! ♡ ՞꒱ა  ۪ }}$
 
 $\text{\color{#aadcd7}{♬⋆.˚ im rarely active on pony town i have busy school weeks and would play eventually owo .゛ ⸝⸝.ᐟ⋆}}$
 
