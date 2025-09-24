@@ -3,6 +3,7 @@
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=courier+new&size=15&pause=1000&color=AADCD7&background=37474547&center=true&vCenter=true&random=true&width=435&lines=sejopi+loves+seals;%3A33+%3C++oyaoya;harp+seals+are+a+honking+bundle+of+fluff)](https://git.io/typing-svg)
 
 $\text{\color{#aadcd7}{༄.° heavy nepeta leijon kinnie, they-them prns only⊱  ۫ ׅ ✧}}$
+$\text{\color{#aadcd7}{very consistent into playing dandys world qwq.. pls hmu.}}$
 
 $\text{\color{#aadcd7}{check out my strawpage for stuff abt me heahehea}}$
 
