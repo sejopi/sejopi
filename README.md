@@ -2,20 +2,20 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=courier+new&size=15&pause=1000&color=AADCD7&background=37474547&center=true&vCenter=true&random=true&width=435&lines=sejopi+loves+seals;%3A33+%3C++oyaoya;harp+seals+are+a+honking+bundle+of+fluff)](https://git.io/typing-svg)
 
-$\text{\color{#aadcd7}{༄.° heavy nepeta leijon kinnie, they-them prns only⊱  ۫ ׅ ✧}}$
+$\text{\color{#aadcd7}{༄.° 𝚑𝚎𝚊𝚟𝚢 𝚗𝚎𝚙𝚎𝚝𝚊 𝚕𝚎𝚒𝚓𝚘𝚗 𝚔𝚒𝚗𝚗𝚒𝚎, 𝚝𝚑𝚎𝚢-𝚝𝚑𝚎𝚖 𝚙𝚛𝚗𝚜 𝚘𝚗𝚕𝚢⊱  ۫ ׅ ✧}}$
 
-$\text{\color{#aadcd7}{very consistent into playing dandys world qwq.. pls hmu.}}$
+$\text{\color{#aadcd7}{𝚟𝚎𝚛𝚢 𝚌𝚘𝚗𝚜𝚒𝚜𝚝𝚎𝚗𝚝 𝚒𝚗𝚝𝚘 𝚙𝚕𝚊𝚢𝚒𝚗𝚐 𝚍𝚊𝚗𝚍𝚢𝚜 𝚠𝚘𝚛𝚕𝚍 𝚚𝚠𝚚.. 𝚙𝚕𝚜 𝚑𝚖𝚞.}}$
 
-$\text{\color{#aadcd7}{check out my strawpage for stuff abt me heahehea}}$
+$\text{\color{#aadcd7}{𝚌𝚑𝚎𝚌𝚔 𝚘𝚞𝚝 𝚖𝚢 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚏𝚘𝚛 𝚜𝚝𝚞𝚏𝚏 𝚊𝚋𝚝 𝚖𝚎 𝚑𝚎𝚊𝚑𝚎𝚑𝚎𝚊}}$
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=sejopi&color=5a8a85&plastic&label=AWAWWAWAWAWA+🦭"></img>
 </p>
 
-$\text{\color{#aadcd7}{.ೃ࿔*:･ hey have i told you I love harp seals? i lvoe seals,}}$
-$\text{\color{#aadcd7}{cats especially black cats, fish and chips, fries, more fries. ⋆ ˚｡⋆}}$
-$\text{\color{#aadcd7}{໒꒰՞ ܸ. I LIKE REGRETEVATOR ALOTSZ !! my fc is slimyim, buck, crem, melanie, null and Infected/Kasper ! ! ♡ ՞꒱ა  ۪ }}$
+$\text{\color{#aadcd7}{.ೃ࿔*:･ 𝚑𝚎𝚢 𝚑𝚊𝚟𝚎 𝚒 𝚝𝚘𝚕𝚍 𝚢𝚘𝚞 𝙸 𝚕𝚘𝚟𝚎 𝚑𝚊𝚛𝚙 𝚜𝚎𝚊𝚕𝚜? 𝚒 𝚕𝚟𝚘𝚎 𝚜𝚎𝚊𝚕𝚜,}}$
+$\text{\color{#aadcd7}{𝚌𝚊𝚝𝚜 𝚎𝚜𝚙𝚎𝚌𝚒𝚊𝚕𝚕𝚢 𝚋𝚕𝚊𝚌𝚔 𝚌𝚊𝚝𝚜, 𝚏𝚒𝚜𝚑 𝚊𝚗𝚍 𝚌𝚑𝚒𝚙𝚜, 𝚏𝚛𝚒𝚎𝚜, 𝚖𝚘𝚛𝚎 𝚏𝚛𝚒𝚎𝚜. ⋆ ˚｡⋆}}$
+$\text{\color{#aadcd7}{໒꒰՞ ܸ. 𝙸 𝙻𝙸𝙺𝙴 𝚁𝙴𝙶𝚁𝙴𝚃𝙴𝚅𝙰𝚃𝙾𝚁 𝙰𝙻𝙾𝚃𝚂𝚉 !! 𝚖𝚢 𝚏𝚌 𝚒𝚜 𝚜𝚕𝚒𝚖𝚢𝚒𝚖, 𝚋𝚞𝚌𝚔, 𝚌𝚛𝚎𝚖, 𝚖𝚎𝚕𝚊𝚗𝚒𝚎, 𝚗𝚞𝚕𝚕 𝚊𝚗𝚍 𝙸𝚗𝚏𝚎𝚌𝚝𝚎𝚍/𝙺𝚊𝚜𝚙𝚎𝚛 ! ! ♡ ՞꒱ა  ۪ }}$
 
-$\text{\color{#aadcd7}{♬⋆.˚ im rarely active on pony town i have busy school weeks and would play eventually owo .゛ ⸝⸝.ᐟ⋆}}$
+$\text{\color{#aadcd7}{♬⋆.˚ 𝚒𝚖 𝚛𝚊𝚛𝚎𝚕𝚢 𝚊𝚌𝚝𝚒𝚟𝚎 𝚘𝚗 𝚙𝚘𝚗𝚢 𝚝𝚘𝚠𝚗 𝚒 𝚑𝚊𝚟𝚎 𝚋𝚞𝚜𝚢 𝚜𝚌𝚑𝚘𝚘𝚕 𝚠𝚎𝚎𝚔𝚜 𝚊𝚗𝚍 𝚠𝚘𝚞𝚕𝚍 𝚙𝚕𝚊𝚢 𝚎𝚟𝚎𝚗𝚝𝚞𝚊𝚕𝚕𝚢 𝚘𝚠𝚘 .゛ ⸝⸝.ᐟ⋆}}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&cover_image=true&theme=novatorem&show_offline=false&background_color=273a34&interchange=true&bar_color=7cb6a3&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
