@@ -4,7 +4,7 @@
 
 $\text{\color{#aadcd7}{༄.° 𝚑𝚎𝚊𝚟𝚢 𝚗𝚎𝚙𝚎𝚝𝚊 𝚕𝚎𝚒𝚓𝚘𝚗 𝚔𝚒𝚗𝚗𝚒𝚎, 𝚝𝚑𝚎𝚢-𝚝𝚑𝚎𝚖 𝚙𝚛𝚗𝚜 𝚘𝚗𝚕𝚢⊱  ۫ ׅ ✧}}$
 
-$\text{\color{#aadcd7}{𝚟𝚎𝚛𝚢 𝚌𝚘𝚗𝚜𝚒𝚜𝚝𝚎𝚗𝚝 𝚒𝚗𝚝𝚘 𝚙𝚕𝚊𝚢𝚒𝚗𝚐 𝚍𝚊𝚗𝚍𝚢𝚜 𝚠𝚘𝚛𝚕𝚍 𝚚𝚠𝚚.. 𝚙𝚕𝚜 𝚑𝚖𝚞.}}$
+$\text{\color{#aadcd7}{me is open for new friendzzdss pls send me ur gimmicks hehe}}$
 
 $\text{\color{#aadcd7}{𝚌𝚑𝚎𝚌𝚔 𝚘𝚞𝚝 𝚖𝚢 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚏𝚘𝚛 𝚜𝚝𝚞𝚏𝚏 𝚊𝚋𝚝 𝚖𝚎 𝚑𝚎𝚊𝚑𝚎𝚑𝚎𝚊}}$
 
