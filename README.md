@@ -4,7 +4,7 @@
 
 $\text{\color{#aadcd7}{༄.° 𝚑𝚎𝚊𝚟𝚢 𝚗𝚎𝚙𝚎𝚝𝚊 𝚕𝚎𝚒𝚓𝚘𝚗 𝚔𝚒𝚗𝚗𝚒𝚎, 𝚝𝚑𝚎𝚢-𝚝𝚑𝚎𝚖 𝚙𝚛𝚗𝚜 𝚘𝚗𝚕𝚢⊱  ۫ ׅ ✧}}$
 
-$\text{\color{#aadcd7}{me is open for new friendzzdss pls send me ur gimmicks hehe}}$
+$\text{\color{#aadcd7}{𝚖𝚎 𝚒𝚜 𝚘𝚙𝚎𝚗 𝚏𝚘𝚛 𝚗𝚎𝚠 𝚏𝚛𝚒𝚎𝚗𝚍𝚣𝚣𝚍𝚜𝚜 𝚙𝚕𝚜 𝚜𝚎𝚗𝚍 𝚖𝚎 𝚞𝚛 𝚐𝚒𝚖𝚖𝚒𝚌𝚔𝚜 𝚑𝚎𝚑𝚎}}$
 
 $\text{\color{#aadcd7}{𝚌𝚑𝚎𝚌𝚔 𝚘𝚞𝚝 𝚖𝚢 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 𝚏𝚘𝚛 𝚜𝚝𝚞𝚏𝚏 𝚊𝚋𝚝 𝚖𝚎 𝚑𝚎𝚊𝚑𝚎𝚑𝚎𝚊}}$
 
