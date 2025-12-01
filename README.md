@@ -1,6 +1,6 @@
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=courier+new&size=15&pause=1000&color=e7c6a3&background=c7b360&center=true&vCenter=true&random=true&width=435&lines=sejopi+loves+seals;%3A33+%3C++oyaoya;harp+seals+are+a+honking+bundle+of+fluff)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=courier+new&size=15&pause=1000&color=56497f&background=c7b360&center=true&vCenter=true&random=true&width=435&lines=sejopi+loves+seals;%3A33+%3C++oyaoya;harp+seals+are+a+honking+bundle+of+fluff)](https://git.io/typing-svg)
 
 $\text{\color{#c7b360}{༄.° aaaa idk what to put here now oke,,, go check my strawpage :33 𝚢⊱  ۫ ׅ ✧}}$
 
