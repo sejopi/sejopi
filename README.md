@@ -6,7 +6,7 @@ $\text{\color{#c7b360}{༄.° aaaa idk what to put here now oke,,, go check my s
 
 $\text{\color{#c7b360}{♬⋆.˚ 𝚒𝚖 𝚛𝚊𝚛𝚎𝚕𝚢 𝚊𝚌𝚝𝚒𝚟𝚎 𝚘𝚗 𝚙𝚘𝚗𝚢 𝚝𝚘𝚠𝚗 𝚒 𝚑𝚊𝚟𝚎 𝚋𝚞𝚜𝚢 𝚜𝚌𝚑𝚘𝚘𝚕 𝚠𝚎𝚎𝚔𝚜 𝚊𝚗𝚍 𝚠𝚘𝚞𝚕𝚍 𝚙𝚕𝚊𝚢 𝚎𝚟𝚎𝚗𝚝𝚞𝚊𝚕𝚕𝚢 𝚘𝚠𝚘 .゛ ⸝⸝.ᐟ⋆}}$
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&cover_image=true&theme=novatorem&show_offline=false&background_color=273a34&interchange=true&bar_color=7cb6a3&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+![honk](https://spotify-recently-played-readme.vercel.app/api?user=31zagpfr6pvi7t6x6m2d3nsey5fi)
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣀⣀⣀⣀⣀⣀⣀⡀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣠⣴⣾⠿⠟⠛⠛⠛⠛⠛⠛⠛⠻⠿⣶⣤⣀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
