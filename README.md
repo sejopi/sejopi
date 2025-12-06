@@ -2,7 +2,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=courier+new&size=15&pause=1000&color=56497f&background=c7b360&center=true&vCenter=true&random=true&width=435&lines=sejopi+loves+seals;%3A33+%3C++oyaoya;harp+seals+are+a+honking+bundle+of+fluff)](https://git.io/typing-svg)
 
-$\text{\color{#c7b360}{༄.° aaaa idk what to put here now oke,,, go check my strawpage :33 𝚢⊱  ۫ ׅ ✧}}$
+$\text{\color{#c7b360}{༄.° 𝚊𝚊𝚊𝚊 𝚒𝚍𝚔 𝚠𝚑𝚊𝚝 𝚝𝚘 𝚙𝚞𝚝 𝚑𝚎𝚛𝚎 𝚗𝚘𝚠 𝚘𝚔𝚎,,, 𝚐𝚘 𝚌𝚑𝚎𝚌𝚔 𝚖𝚢 𝚜𝚝𝚛𝚊𝚠𝚙𝚊𝚐𝚎 :𝟹𝟹 ⊱  ۫ ׅ ✧}}$
 
 $\text{\color{#c7b360}{♬⋆.˚ 𝚒𝚖 𝚛𝚊𝚛𝚎𝚕𝚢 𝚊𝚌𝚝𝚒𝚟𝚎 𝚘𝚗 𝚙𝚘𝚗𝚢 𝚝𝚘𝚠𝚗 𝚒 𝚑𝚊𝚟𝚎 𝚋𝚞𝚜𝚢 𝚜𝚌𝚑𝚘𝚘𝚕 𝚠𝚎𝚎𝚔𝚜 𝚊𝚗𝚍 𝚠𝚘𝚞𝚕𝚍 𝚙𝚕𝚊𝚢 𝚎𝚟𝚎𝚗𝚝𝚞𝚊𝚕𝚕𝚢 𝚘𝚠𝚘 .゛ ⸝⸝.ᐟ⋆}}$
 
