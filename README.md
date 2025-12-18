@@ -10,7 +10,7 @@ $\text{\color{#c7b360}{⤷ ゛𝐩𝐥𝐬 𝐠𝐫𝐞𝐞𝐧 𝐧𝐚𝐦𝐞
 
 $\text{\color{#c7b360}{༉‧₊ 𝐬𝐮𝐛𝐬𝐭𝐚𝐧𝐭𝐢𝐚𝐥 𝐤𝐢𝐧𝐬 ... ⁚ 𝐧𝐞𝐩𝐞𝐭𝐚, 𝐛𝐚𝐬𝐬𝐢𝐞, 𝐜𝐡𝐜, 𝐬𝐢𝐜, 𝐬𝐡𝐞𝐥𝐥𝐲 𝐚𝐧𝐝 𝐤𝐚𝐧𝐚𝐲𝐚 𝐨𝐰𝐨 ‧₊˚♡ }}$
 
-![jims](https://komarev.com/ghpvc/?username=sejopi&color=e6be8a&plastic&label=le jimms)
+![jims](https://komarev.com/ghpvc/?username=sejopi&color=e6be8a&plastic&label=le+jimms)
 
 ![honk](https://spotify-recently-played-readme.vercel.app/api?user=31zagpfr6pvi7t6x6m2d3nsey5fi)
 
