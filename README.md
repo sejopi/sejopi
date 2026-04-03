@@ -2,9 +2,9 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=courier+new&size=15&pause=1000&color=c7b360&center=true&vCenter=true&random=true&width=435&lines=sejopi+loves+seals;%3A33+%3C++oyaoya;harp+seals+are+a+honking+bundle+of+fluff)](https://git.io/typing-svg)
 
-$\text{\color{#c7b360}{༄.° 𝐜𝐡𝐞𝐜𝐤 𝐦𝐲 𝐬𝐭𝐫𝐚𝐰 𝐩𝐚𝐠𝐞 𝐭𝐡𝐞𝐫𝐞'𝐬 𝐧𝐨𝐭 𝐦𝐮𝐜𝐡 𝐭𝐨 𝐬𝐞𝐞 𝐡𝐞𝐫𝐞. ⊱  ۫ ׅ ✧}}$
+$\text{\color{#c7b360}{༄.° 𝐢𝐦 𝐚𝐟𝐫𝐚𝐢𝐝 𝐢 𝐧𝐞𝐞𝐝 𝐟𝐫𝐢𝐞𝐧𝐝𝐬 𝐭𝐨 𝐭𝐚𝐥𝐤 𝐨𝐟𝐭𝐞𝐧 & 𝐩𝐥𝐚𝐲 𝐫𝐨𝐛𝐥𝐨𝐱. ⊱  ۫ ׅ ✧}}$
 
-$\text{\color{#c7b360}{༉‧₊ 𝐤𝐢𝐧𝐬 ⁚ 𝐥𝐚𝐝𝐲 𝐦𝐚𝐫𝐢𝐚 𝐨.𝐭.𝐚.𝐜 , 𝐧𝐞𝐩𝐞𝐭𝐚, 𝐛𝐚𝐬𝐬𝐢𝐞, 𝐜𝐡𝐜, 𝐬𝐢𝐜, 𝐬𝐡𝐞𝐥𝐥𝐲, 𝐤𝐚𝐧𝐚𝐲𝐚 ‧₊˚♡ }}$
+$\text{\color{#c7b360}{༉‧₊ 𝐦𝐲 𝐡𝐞𝐚𝐯𝐲 𝐤𝐢𝐧𝐬 𝐜𝐮𝐫𝐫𝐞𝐧𝐭𝐥𝐲 ⁚ 𝐡𝐰𝐨𝐚𝐫𝐚𝐧𝐠, 𝐜𝐡𝐨𝐬𝐨, 𝐧𝐞𝐩𝐞𝐭𝐚, 𝐛𝐚𝐬𝐬𝐢𝐞. ‧₊˚♡ }}$
 
 ![jims](https://komarev.com/ghpvc/?username=sejopi&color=e6be8a&plastic&label=le+pinnipeds)
 
