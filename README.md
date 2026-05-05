@@ -2,7 +2,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=courier+new&size=15&pause=1000&color=9AA040&center=true&vCenter=true&random=true&width=435&lines=sejopi+loves+seals;%3A33+%3C++oyaoya;harp+seals+are+a+honking+bundle+of+fluff)](https://git.io/typing-svg)
 
-$\text{\color{#9AA040}{༄.° 𝐢 𝐬𝐞𝐥𝐟𝐬𝐡𝐢𝐩 𝐰/ 𝐩𝐨𝐩𝐩𝐲.. ❍｡º○ ○º｡  ۫ ׅ ✧}}$
+$\text{\color{#9AA040}{༄.° 𝐬𝐞𝐥𝐟𝐬𝐡𝐢𝐩𝐩𝐢𝐧𝐠 𝐦𝐲𝐬𝐞𝐥𝐟 𝐰𝐢𝐭𝐡 𝐩𝐨𝐩𝐩𝐲 𝐟𝐫𝐨𝐦 𝐝𝐰.. ❍｡º○ ○º｡  ۫ ׅ ✧}}$
 
 $\text{\color{#9AA040}{⫷─ 𝐢𝐧𝐭𝐣 𝟖𝐰𝟗 ─ 𝟎𝟕.𝟏𝟎 ⏤͟͟͞͞★ .ᐟ 𖦹}}$
 
