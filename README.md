@@ -2,7 +2,7 @@
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=courier+new&size=15&pause=1000&color=9AA040&center=true&vCenter=true&random=true&width=435&lines=sejopi+loves+seals;%3A33+%3C++oyaoya;harp+seals+are+a+honking+bundle+of+fluff)](https://git.io/typing-svg)
 
-$\text{\color{#9AA040}{༄.° 𝐝𝐢𝐬𝐜𝐚𝐫𝐝 𝐬𝐞𝐥𝐟𝐬𝐡𝐢𝐩𝐩𝐞𝐫 𝐢 𝐥𝐮𝐮𝐮𝐯 𝐡𝐢𝐦 ❍｡º○ ○º｡  ۫ ׅ ✧}}$
+$\text{\color{#9AA040}{༄.° 𝐢𝐟 𝐢𝐦 𝐢𝐝𝐥𝐞 𝐣𝐮𝐬𝐭 𝐰𝐡𝐢𝐬𝐩𝐞𝐫 𝐦𝐞 𝐨𝐫 𝐝𝐨 𝐰𝐡𝐭𝐯𝐫 ❍｡º○ ○º｡  ۫ ׅ ✧}}$
 
 $\text{\color{#9AA040}{⫷─ 𝐢𝐧𝐭𝐣 𝟖𝐰𝟗 ─ 𝟎𝟕.𝟏𝟎 ⏤͟͟͞͞★ .ᐟ 𖦹}}$
 
