@@ -10,7 +10,7 @@ $\text{\color{#c1b0d1}{༉‧₊ 𝐦𝐲 𝐡𝐞𝐚𝐯𝐲 𝐤𝐢𝐧𝐬 
 
 $\text{\color{#7d698d}{✧₊⁺🕯⋆ 𝐢 𝐩𝐥𝐚𝐲 𝐜𝐫𝐤, 𝐭𝐞𝐤𝐤𝐞𝐧 𝟕 𝐚𝐧𝐝 𝐫𝐨𝐛𝐥𝐨𝐱. [𝐝𝐚𝐧𝐝𝐲𝐬 𝐰𝐨𝐫𝐥𝐝, 𝐭𝐨𝐨𝐧𝐬 𝐮𝐧𝐢𝐯𝐞𝐫𝐬𝐞, 𝐝𝐨𝐥𝐥𝐲𝐬 𝐟𝐚𝐜𝐭𝐨𝐫𝐲, 𝐛𝐥𝐚𝐢𝐫, 𝐝𝐞𝐦𝐨𝐧𝐨𝐥𝐨𝐠𝐲.] .˚୨ৎ}}$
 
-![jims](https://komarev.com/ghpvc/?username=sejopi&color=7d698d&plastic&label=hi)
+![jims](https://komarev.com/ghpvc/?username=sejopi&color=c1b0d1&plastic&label=♞)
 
 ![honk](https://spotify-recently-played-readme.vercel.app/api?user=31zagpfr6pvi7t6x6m2d3nsey5fi)
 
