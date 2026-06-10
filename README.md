@@ -4,6 +4,18 @@
 
 $\text{\color{#c1b0d1}{༄.° 𝐢𝐟  𝐢 𝐡𝐚𝐯𝐞 𝐜/𝐡 𝐝𝐨𝐧𝐭 𝐡𝐞𝐬𝐢𝐭𝐚𝐭𝐞 𝐭𝐨 𝐜𝐮𝐝 | 𝐢𝐟 𝐢𝐦 𝐢𝐝𝐥𝐞 𝐣𝐮𝐬𝐭 𝐰𝐡𝐢𝐬𝐩𝐞𝐫 𝐦𝐞 𝐨𝐫 𝐝𝐨 𝐰𝐡𝐭𝐯𝐫 ❍｡º○ ○º｡  ۫ ׅ ✧}}$
 
+</p>
+
+<p align="center">
+  
+<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/stop." width="200" height="auto" align="center"></img></a>
+
+</p>
+
+<div align="Center">
+
+![]()
+
 $\text{\color{#7d698d}{⫷─ 𝐢𝐧𝐭𝐣 𝟖𝐰𝟗 ─ 𝟎𝟕.𝟏𝟎 ⏤͟͟͞͞★ .ᐟ 𖦹}}$
 
 $\text{\color{#c1b0d1}{༉‧₊ 𝐦𝐲 𝐡𝐞𝐚𝐯𝐲 𝐤𝐢𝐧𝐬 𝐜𝐮𝐫𝐫𝐞𝐧𝐭𝐥𝐲 ⁚ 𝐜𝐥𝐨𝐮𝐝 𝐡𝐚𝐞𝐭𝐚𝐞 𝐜𝐨𝐨𝐤𝐢𝐞, 𝐩𝐢𝐧𝐞𝐜𝐨𝐧𝐞 𝐜𝐨𝐨𝐤𝐢𝐞, 𝐧𝐞𝐩𝐞𝐭𝐚, 𝐩𝐞𝐫𝐢𝐝𝐨𝐭, 𝐜𝐡𝐨𝐬𝐨. ‧₊˚♡ }}$
