@@ -32,7 +32,7 @@ $\text{\color{#7d698d}{✧₊⁺🕯⋆ 𝐢 𝐩𝐥𝐚𝐲 𝐜𝐫𝐤, 𝐭
 
 <div align="left">
 
-<p align="left"><img src="https://file.garden/ZroW4OcqSGtS0a5j/thisbelongstosejopi.png" width="300" height="auto" align="left"></img></a>
+<p align="left"><img src="https://file.garden/ZroW4OcqSGtS0a5j/thisbelongstosejopi.png" width="200" height="auto" align="left"></img></a>
 
 <p align="left"><img src="https://file.garden/ZroW4OcqSGtS0a5j/Cookie0611-talk.gif" width="200" height="auto" align="left"></img></a>
 
