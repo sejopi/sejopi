@@ -12,7 +12,7 @@ $\text{\color{#c1b0d1}{༄.° 𝐢𝐟  𝐢 𝐡𝐚𝐯𝐞 𝐜/𝐡 𝐝𝐨
 
 <div align="center">
 
-<p align="right"><img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled17_20260616190734.png" width="400" height="auto" align="right"></img></a>
+<p align="right"><img src="https://file.garden/ZroW4OcqSGtS0a5j/tttttt.png" width="400" height="auto" align="right"></img></a>
   
 <p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/stop." width="300" height="auto" align="center"></img></a>
 
@@ -32,9 +32,7 @@ $\text{\color{#7d698d}{✧₊⁺🕯⋆ 𝐢 𝐩𝐥𝐚𝐲 𝐜𝐫𝐤, 𝐭
 
 <div align="left">
 
-<p align="left"><img src="https://file.garden/ZroW4OcqSGtS0a5j/thisbelongstosejopi.png" width="200" height="auto" align="left"></img></a>
-
-<p align="left"><img src="https://file.garden/ZroW4OcqSGtS0a5j/Cookie0611-talk.gif" width="200" height="auto" align="left"></img></a>
+<p align="left"><img src="https://file.garden/ZroW4OcqSGtS0a5j/Cookie0611-talk.gif" width="300" height="auto" align="left"></img></a>
 
 </p>
 
