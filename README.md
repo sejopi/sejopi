@@ -1,6 +1,6 @@
 <div align="left">
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=courier+new&size=15&pause=1000&color=7d698d&center=true&vCenter=true&random=true&width=435&lines=sejopi+loves+seals;%3A33+%3C++oyaoya;harp+seals+are+a+honking+bundle+of+fluff)](https://git.io/typing-svg)
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=courier+new&pause=1000&color=736EF7&random=true&width=435&lines=i+like+to+learn+about+pinnipeds;no.1+guido+%26+rossum+lover;harp+seals+are+a+honking+bundle+of+fluff;no.1+hwoarang+lover!!%3C3333;cloud+haetae+cookie+is+my+kewl+child;project+zomboid+glazer+(genuinely+good+game+%2C%2C+trusttt)" alt="boobs" /></a>
 
 </p>
 
