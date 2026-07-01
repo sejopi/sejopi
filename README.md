@@ -1,6 +1,6 @@
 <div align="left">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=courier+new&pause=1000&color=736EF7&random=true&width=435&lines=i+like+to+learn+about+pinnipeds;no.1+guido+%26+rossum+lover;seals+are+a+honking+bundle+of+fluff;no.1+hwoarang+lover!!%3C3333;cloud+haetae+cookie+is+my+kewl+child;project+zomboid+glazer" alt="big tits" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=courier+new&pause=1000&color=7d698d&random=true&width=435&lines=i+like+to+learn+about+pinnipeds;no.1+guido+%26+rossum+lover;seals+are+a+honking+bundle+of+fluff;no.1+hwoarang+lover!!%3C3333;cloud+haetae+cookie+is+my+kewl+child;project+zomboid+glazer" alt="big tits" /></a>
 
 </p>
 
