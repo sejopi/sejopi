@@ -1,6 +1,6 @@
 <div align="left">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=courier+new&pause=1000&color=7d698d&random=true&width=435&lines=i+like+to+learn+about+pinnipeds;no.1+guido+%26+rossum+lover;seals+are+a+honking+bundle+of+fluff;no.1+hwoarang+lover!!%3C3333;cloud+haetae+cookie+is+my+kewl+child;project+zomboid+glazer" alt="big tits" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=courier+new&pause=1000&color=7d698d&random=true&width=435&lines=i+like+to+learn+about+pinnipeds;no.1+guido+%26+rossum+lover;seals+are+a+honking+bundle+of+fluff;no.1+hwoarang+lover!!%3C3333;cloud+haetae+cookie's+guardian;project+zomboid+glazer;tod+waggner's+bf/gf;heavy+kin+on+copper+wishling" alt="big tits" /></a>
 
 </p>
 
@@ -14,11 +14,11 @@ $\text{\color{#c1b0d1}{༄.° 𝐢𝐟 𝐢 𝐡𝐚𝐯𝐞 𝐥𝐟𝐜 𝐬�
 
 <div align="center">
 
-<p align="right"><img src="https://file.garden/ZroW4OcqSGtS0a5j/tttttt.png" width="400" height="auto" align="right"></img></a>
+<p align="right"><img src="https://file.garden/ZroW4OcqSGtS0a5j/sejopisinterest.png" width="400" height="auto" align="right"></img></a>
   
-<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/stop." width="300" height="auto" align="center"></img></a>
+<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/ezgif.com-optimize.gif" width="400" height="auto" align="center"></img></a>
 
-<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled20_20260720204957.png" width="200" height="auto" align="center"></img></a>
+<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/wow%20i%20stole%20this%20from%20sejopi%20lmfao.png" width="300" height="auto" align="center"></img></a>
 
 <p align="right"><img src="https://file.garden/ZroW4OcqSGtS0a5j/Cookie0611-sit_floor.gif" width="100" height="auto" align="right"></img></a>
 
@@ -36,7 +36,7 @@ $\text{\color{#c1b0d1}{༄.° 𝐢𝐟 𝐢 𝐡𝐚𝐯𝐞 𝐥𝐟𝐜 𝐬�
 
 $\text{\color{#7d698d}{⫷─ 𝐢𝐧𝐭𝐣 𝟖𝐰𝟗 ─ 𝟎𝟕.𝟏𝟎 ⏤͟͟͞͞★ .ᐟ 𖦹}}$
 
-<div align="right">
+<div align="center">
 
 $\text{\color{#c1b0d1}{༉‧₊ 𝐦𝐲 𝐡𝐞𝐚𝐯𝐲 𝐤𝐢𝐧𝐬 𝐜𝐮𝐫𝐫𝐞𝐧𝐭𝐥𝐲 ⁚ 𝐜𝐨𝐩𝐩𝐞𝐫, 𝐧𝐞𝐩𝐞𝐭𝐚, 𝐩𝐞𝐫𝐢𝐝𝐨𝐭, 𝐜𝐡𝐨𝐬𝐨. ‧₊˚♡ }}$
 
