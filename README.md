@@ -22,7 +22,7 @@ $\text{\color{#c1b0d1}{༄}\color{#a98fc0}{.}\color{#8f6aa8}{°}\color{#642e86}{
 
 <p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/Cookie0611-sit_floor.gif" width="100" height="auto" align="center"></img></a>
 
-![jims](https://komarev.com/ghpvc/?username=sejopi&color=c1b0d1&plastic&label=♞)
+![jims](https://komarev.com/ghpvc/?username=sejopi&color=ec4925&plastic&label=♞)
 
 </p>
 
