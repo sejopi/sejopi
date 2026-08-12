@@ -1,6 +1,6 @@
 <div align="left">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=courier+new&pause=1000&color=7d698d&random=true&width=435&lines=i+like+to+learn+about+pinnipeds;no.1+gnr+fan;seals+are+a+honking+bundle+of+fluff;no.1+hwoarang+lover!!%3C3333;cloud+haetae+cookie's+guardian;project+zomboid+glazer;tod+waggner's+bf/gf;heavy+kin+on+copper+wishling" alt="why the fuck are you reading my readme codes" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=courier+new&pause=1000&color=7d698d&random=true&width=435&lines=i+like+to+learn+about+pinnipeds;no.1+gnr+fan;seals+are+a+honking+bundle+of+fluff;one+and+only+hwoarang's+lover!!%3C3333;cloud+haetae+cookie's+guardian;project+zomboid+glazer;tod+waggner's+bf/gf;heavy+kin+on+copper+wishling" alt="why the fuck are you reading my readme codes" /></a>
 
 </p>
 
