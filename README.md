@@ -6,7 +6,7 @@
 
 ***
 
-<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/i%20actually%20stole%20this%20from%20sejopi.gif" width="400" height="auto"></img></a>
+<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/hwo%20win%20outro.gif" width="600" height="300"></img></a>
 
 ˖ ✦ ‧₊˚ ⋅  ![jims](https://komarev.com/ghpvc/?username=sejopi&color=ec4925&plastic&label=♞)
 
@@ -29,13 +29,9 @@ $\text{\color{#c1b0d1}{•}\color{#a98fc0}{ }\color{#8f6aa8}{.}\color{#642e86}{ 
 
 <p align="center"><img src="https://i.postimg.cc/KzPN74XJ/asexual-2.png" width=30" height="auto"></img></a> <img src="https://i.postimg.cc/d1RVzFjh/demiromantic-3-stripes-21-px.png" width=30" height="auto"></img></a> <img src="https://64.media.tumblr.com/db8061f320cca17ff2b5d18212cf8e90/tumblr_px4p02vYmQ1w97bfxo2_640.jpg" width=30" height="auto"></img></a>
 
+<img src="https://file.garden/ZroW4OcqSGtS0a5j/hwoarang%20gifheheh%20made%20by%20sejopi.gif" width="200" height="auto"></img></a>
+
 <p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/Cookie0611-sit_floor.gif" width="100" height="auto" align="center"></img></a>
-
-</p>
-
-<div align="center">
-
-<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/i%20stole%20this%20from%20sejopi.gif" width="100" height="56" align="center"></img></a>
 
 </p>
 
@@ -54,6 +50,8 @@ $\text{\color{#c1b0d1}{✧}\color{#a98fc0}{₊}\color{#8f6aa8}{⁺}\color{#642e8
 </p>
 
 <img src="https://file.garden/ZroW4OcqSGtS0a5j/stolethisfromsejopi!!.gif" width="200" height="auto"></img></a> <img src="https://file.garden/ZroW4OcqSGtS0a5j/sejopimadethisyo.gif" width="200" height="auto"></img></a> <img src="https://file.garden/ZroW4OcqSGtS0a5j/ermsejopimadethisgif.gif" width="200" height="auto"></img></a> <img src="https://file.garden/ZroW4OcqSGtS0a5j/i%20stole%20this%20from%20sejopi%20omg.gif" width="200" height="auto"></img></a>
+
+<img src="https://file.garden/ZroW4OcqSGtS0a5j/i%20stole%20this%20from%20sejopi.gif" width="100" height="56"></img></a>
 
 ***
 
