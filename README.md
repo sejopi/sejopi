@@ -6,7 +6,7 @@
 
 ***
 
-<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/hwo%20win%20outro.gif" width="600" height="300"></img></a>
+<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/hwo%20win%20outro.gif" width="600" height="290"></img></a>
 
 ˖ ✦ ‧₊˚ ⋅  ![jims](https://komarev.com/ghpvc/?username=sejopi&color=ec4925&plastic&label=♞)
 
