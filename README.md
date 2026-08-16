@@ -23,11 +23,9 @@ $\text{\color{#c1b0d1}{•}\color{#a98fc0}{ }\color{#8f6aa8}{.}\color{#642e86}{ 
 
 <p align="right"><img src="https://file.garden/ZroW4OcqSGtS0a5j/sejopisinterest.png" width="400" height="auto" align="right"></img></a>
   
-<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/ezgif.com-optimize.gif" width="400" height="auto" align="center"></img></a>
+<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/kewl%20gif%20made%20by%20sejopi%20100%25.gif" width="400" height="auto" align="center"></img></a>
 
 <p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/wow%20i%20stole%20this%20from%20sejopi%20lmfao.png" width="300" height="auto" align="center"></img></a>
-
-<p align="center"><img src="https://i.postimg.cc/KzPN74XJ/asexual-2.png" width=30" height="auto"></img></a> <img src="https://i.postimg.cc/d1RVzFjh/demiromantic-3-stripes-21-px.png" width=30" height="auto"></img></a> <img src="https://64.media.tumblr.com/db8061f320cca17ff2b5d18212cf8e90/tumblr_px4p02vYmQ1w97bfxo2_640.jpg" width=30" height="auto"></img></a>
 
 <img src="https://file.garden/ZroW4OcqSGtS0a5j/hwoarang%20gifheheh%20made%20by%20sejopi.gif" width="200" height="auto"></img></a>
 
