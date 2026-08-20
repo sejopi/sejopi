@@ -6,7 +6,13 @@
 
 ***
 
-<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/hwo%20win%20outro.gif" width="600" height="290"></img></a>
+<div align="center">
+
+https://github.com/user-attachments/assets/2b45568a-ff73-4ecb-9093-d60d67c0d9fe
+
+https://github.com/user-attachments/assets/e4cc4260-a65b-431f-8a42-991446103ac9
+
+</p>
 
 ˖ ✦ ‧₊˚ ⋅  ![jims](https://komarev.com/ghpvc/?username=sejopi&color=ec4925&plastic&label=♞)
 
@@ -50,6 +56,8 @@ $\text{\color{#c1b0d1}{✧}\color{#a98fc0}{₊}\color{#8f6aa8}{⁺}\color{#642e8
 <img src="https://file.garden/ZroW4OcqSGtS0a5j/stolethisfromsejopi!!.gif" width="200" height="auto"></img></a> <img src="https://file.garden/ZroW4OcqSGtS0a5j/sejopimadethisyo.gif" width="200" height="auto"></img></a> <img src="https://file.garden/ZroW4OcqSGtS0a5j/ermsejopimadethisgif.gif" width="200" height="auto"></img></a> <img src="https://file.garden/ZroW4OcqSGtS0a5j/i%20stole%20this%20from%20sejopi%20omg.gif" width="200" height="auto"></img></a>
 
 <img src="https://file.garden/ZroW4OcqSGtS0a5j/i%20stole%20this%20from%20sejopi.gif" width="100" height="56"></img></a>
+
+<p align="center"><img src="https://file.garden/ZroW4OcqSGtS0a5j/hwo%20win%20outro.gif" width="600" height="290"></img></a>
 
 ***
 
