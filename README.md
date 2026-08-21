@@ -14,6 +14,8 @@ https://github.com/user-attachments/assets/e4cc4260-a65b-431f-8a42-991446103ac9
 
 </p>
 
+![](https://file.garden/ZroW4OcqSGtS0a5j/d5g69hb-f98763b7-5994-49f5-82f8-caf2e3c8ef30.png)
+
 ˖ ✦ ‧₊˚ ⋅  ![jims](https://komarev.com/ghpvc/?username=sejopi&color=42b2b7&plastic&label=♞)
 
 <div align="center">
