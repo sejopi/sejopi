@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://file.garden/ZroW4OcqSGtS0a5j/HPgOLataoAAI1eT.png" alt="strawpage_link" height=“auto” width="600">
+<img src="https://file.garden/ZroW4OcqSGtS0a5j/HPgOLataoAAI1eT.png" alt="wish he ws me" height=“300” width="300">
 
 $\text\large{\color{#c7b360}{𝐥}\color{#b59b5a}{𝐢}\color{#9c805f}{𝐧}\color{#806268}{𝐤}\color{#642e86}{𝐬}}$
 
