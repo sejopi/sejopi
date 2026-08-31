@@ -6,7 +6,7 @@
 
 <div align="center">
 
-<img width="292" height="59" alt="fictkin" src="https://github.com/user-attachments/assets/d718687c-de35-4c0b-834a-f7bee3627a01" />
+<img width="292" height="59" alt="fictkin" src="https://file.garden/ZroW4OcqSGtS0a5j/sejopi%20is%20mephiles.png" />
 
 </p>
 
@@ -28,3 +28,4 @@ https://github.com/user-attachments/assets/2b45568a-ff73-4ecb-9093-d60d67c0d9fe
 https://github.com/user-attachments/assets/e4cc4260-a65b-431f-8a42-991446103ac9
 
 </p>
+
