@@ -10,6 +10,13 @@
 
 </p>
 
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&cover_image=true&theme=spotify-embed&show_offline=false&background_color=0f1c1f&interchange=true&profanity=false&hide_remaster=false&bar_color=4f7d76&bar_color_cover=false&mode=dark">
+  </a>
+</p>
+
+
 $\text\large{\color{#c7b360}{𝐥}\color{#b59b5a}{𝐢}\color{#9c805f}{𝐧}\color{#806268}{𝐤}\color{#642e86}{𝐬}}$
 
 $\text{\color{#c7b360}{↶ 𝐬}\color{#bda55c}{𝐭𝐫}\color{#b39a59}{𝐚𝐰}\color{#a98f5c}{𝐩𝐚}\color{#9f825f}{𝐠𝐞}\color{#957665}{ , }\color{#8b6b6b}{𝐚𝐭}\color{#81606f}{𝐚𝐛}\color{#775575}{𝐨𝐨}\color{#6d4a7d}{𝐤 ↷}}$
