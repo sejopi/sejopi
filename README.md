@@ -28,7 +28,14 @@ $\text{\color{#c7b360}{↶ 𝐬}\color{#bda55c}{𝐭𝐫}\color{#b39a59}{𝐚�
 
   <div align="center">
 
-<img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled151.png" alt="strawpage_link" height=“auto” width="600">
+$\text{\color{#c7b360}{𝐩}\color{#bda55c}{𝐫}\color{#b39a59}{𝐨}\color{#a98f5c}{𝐧}\color{#9f825f}{𝐨}\color{#957665}{𝐮}\color{#8b6b6b}{𝐧}\color{#81606f}{𝐬}\color{#775575}{.}\color{#6d4a7d}{𝐜}\color{#642e86}{𝐜}}$
+
+<a href="https://pronouns.cc/@sejopi">
+  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled153.png" alt="prns cc" height=“500” width="100">
+
+  <div align="center">
+
+<img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled151.png" alt="no" height=“auto” width="600">
 
 https://github.com/user-attachments/assets/2b45568a-ff73-4ecb-9093-d60d67c0d9fe
 
