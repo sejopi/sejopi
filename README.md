@@ -1,5 +1,11 @@
 <div align="center">
 
+![](https://komarev.com/ghpvc/?username=sejopi&style=plastic&color=6d4a7d&label=voids)
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=courier+new&weight=300&pause=1000&color=6D4A7D&background=C7B3602A&width=243&lines=%E2%80%B6+I+Want+To+Exist.+%E2%80%B3" alt="Typing SVG" /></a>
+
+<div align="center">
+
 <img src="https://file.garden/ZroW4OcqSGtS0a5j/homestuck-davepeta.gif" alt="AAAFHHFH" height=“600” width="500">
 
 </p>
