@@ -10,6 +10,9 @@
 
 </p>
 
+<img width="811" height="81" alt="Screenshot (762)" src="https://github.com/user-attachments/assets/f7b9a696-d3b3-41b9-b23d-c610da0ccdb6" />
+
+
 <div align="center">
 
 <img width="292" height="59" alt="fictkin" src="https://file.garden/ZroW4OcqSGtS0a5j/sejopi%20is%20mephiles.png" />
