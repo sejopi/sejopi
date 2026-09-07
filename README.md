@@ -23,15 +23,17 @@
   <summary> $\text{\color{#c7b360}{𝒄}\color{#bda55c}{𝐥}\color{#b39a59}{𝐨}\color{#a98f5c}{𝐬}\color{#9f825f}{𝐞}\color{#957665}{𝐬}\color{#8b6b6b}{𝐭}\color{#81606f}{;}\color{#775575}{𝐩}\color{#6d4a7d}{𝐞}\color{#642e86}{𝐨}\color{#642e86}{𝐩}\color{#642e86}{𝐥}\color{#642e86}{𝐞}}$ </summary>
   <br>
   
-  <a href="https://github.com/mrfishsandwhich"><font color="#c7b360">dae</font></a><br>
-  
-  <a href="https://github.com/STR1K3-sp"><font color="#b59b5a">strike</font></a>
-  
-  <a href="https://github.com/pur3lies"><font color="#9c805f">sukuna / jester i think he loves sukuna damn idk </font></a>
+  <a href="https://github.com/mrfishsandwhich"><font color="#c7b360">𝐝𝐚𝐞</font></a><br>
 
-  <a href="https://github.com/acerbicSerpentine"><font color="#806268">tin</font></a>
+   <a href="https://github.com/pouncedeleon"><font color="#c7b360">𝐬𝐡𝐚𝐫𝐤 / 𝐧𝐞𝐩𝐞𝐭𝐚 . . . " 𝐢𝐦 𝐭𝐡𝐞 𝐜𝐨𝐨𝐥𝐞𝐬𝐭 𝐤𝐢𝐭𝐭𝐲 𝐞𝐟𝐮𝐫 𝐁) "</font></a><br>
+  
+  <a href="https://github.com/STR1K3-sp"><font color="#b59b5a">𝐬𝐭𝐫𝐢𝐤𝐞</font></a>
+  
+  <a href="https://github.com/pur3lies"><font color="#9c805f">𝐬𝐮𝐤𝐮𝐧𝐚 / 𝐣𝐞𝐬𝐭𝐞𝐫 " 𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄 𝐈𝐌 𝐇𝐈𝐌 " </font></a>
 
-  <a href="https://github.com/scientificmadman"><font color="#642e86">cakeyaki</font></a>
+  <a href="https://github.com/acerbicSerpentine"><font color="#806268">𝐭𝐢𝐧</font></a>
+
+  <a href="https://github.com/scientificmadman"><font color="#642e86">𝐜𝐚𝐤𝐞𝐲𝐚𝐤𝐢</font></a>
   
 </details>
 
