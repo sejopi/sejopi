@@ -29,6 +29,8 @@
   
   <a href="https://github.com/pur3lies"><font color="#9c805f">𝐬𝐮𝐤𝐮𝐧𝐚 / 𝐣𝐞𝐬𝐭𝐞𝐫 " 𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄 𝐈𝐌 𝐇𝐈𝐌 " </font></a>
 
+  <a href="https://github.com/doomfraid"><font color="#806268">𝐢𝐩𝐞𝐤 / 𝐫𝐢𝐫𝐢</font></a>
+
   <a href="https://github.com/acerbicSerpentine"><font color="#806268">𝐭𝐢𝐧</font></a>
 
   <a href="https://github.com/scientificmadman"><font color="#642e86">𝐜𝐚𝐤𝐞𝐲𝐚𝐤𝐢</font></a>
