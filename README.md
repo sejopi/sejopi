@@ -20,16 +20,18 @@
 </p>
 
 <details>
-  <summary> $\text{\color{#c7b360}{𝒄}\color{#bda55c}{𝐥}\color{#b39a59}{𝐨}\color{#a98f5c}{𝐬}\color{#9f825f}{𝐞}\color{#957665}{𝐬}\color{#8b6b6b}{𝐭}\color{#81606f} {𝐩}\color{#6d4a7d}{𝐞}\color{#642e86}{𝐨}\color{#642e86}{𝐩}\color{#642e86}{𝐥}\color{#642e86}{𝐞}}$ </summary>
+  <summary> $\text{\color{#c7b360}{𝐞}\color{#bda55c}{𝐲}\color{#b39a59}{𝐞}\color{#a98f5c}{𝐬} \color{#9f825f}{𝐨}\color{#957665}{𝐧} \color{#8b6b6b}{𝐭}\color{#81606f}{𝐡}\color{#775575}{𝐞}\color{#6d4a7d}{𝐦}}$ </summary>
   <br>
   
   <a href="https://github.com/mrfishsandwhich"><font color="#c7b360">𝐝𝐚𝐞</font></a><br>
 
-   <a href="https://github.com/pouncedeleon"><font color="#b59b5a">𝐬𝐡𝐚𝐫𝐤 / 𝐧𝐞𝐩𝐞𝐭𝐚 . . . " 𝐢𝐦 𝐭𝐡𝐞 𝐜𝐨𝐨𝐥𝐞𝐬𝐭 𝐤𝐢𝐭𝐭𝐲 𝐞𝐟𝐮𝐫 𝐁) "</font></a><br>
+  <a href="https://github.com/windlesstorm"><font color="#b59b5a">𝐬𝐨𝐧𝐤𝐲 .ᐟ.ᐟ " 𝐈𝐌 𝐆𝐈𝐆𝐆𝐋𝐈𝐎𝐍𝐆 " </font></a><br>
   
   <a href="https://github.com/pur3lies"><font color="#9c805f">𝐬𝐮𝐤𝐮𝐧𝐚 / 𝐣𝐞𝐬𝐭𝐞𝐫 " 𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄 𝐈𝐌 𝐇𝐈𝐌 " </font></a>
 
   <a href="https://github.com/doomfraid"><font color="#806268">𝐢𝐩𝐞𝐤 / 𝐫𝐢𝐫𝐢</font></a>
+
+  <a href="https://github.com/pouncedeleon"><font color="#806268">𝐬𝐡𝐚𝐫𝐤 / 𝐧𝐞𝐩𝐞𝐭𝐚 . . . " 𝐢𝐦 𝐭𝐡𝐞 𝐜𝐨𝐨𝐥𝐞𝐬𝐭 𝐤𝐢𝐭𝐭𝐲 𝐞𝐟𝐮𝐫 𝐁) "</font></a><br>
 
   <a href="https://github.com/acerbicSerpentine"><font color="#806268">𝐭𝐢𝐧</font></a>
 
