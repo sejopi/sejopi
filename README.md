@@ -72,5 +72,13 @@ $\text{\color{#00690c}{𝐢}\color{#0c700e}{𝐦}\color{#197811}{𝐦}\color{#28
 
 $\text{\color{#00690c}{𝐛}\color{#0c700e}{𝐮}\color{#197811}{𝐭} \color{#287f13}{𝐢}\color{#388715}{𝐟} \color{#488e15}{𝐲}\color{#589615}{𝐨}\color{#679d14}{𝐮}\color{#717714}{𝐫}\color{#657d0f}{𝐞} \color{#59850a}{𝐟}\color{#4d8d06}{𝐢}\color{#429500}{𝐧}\color{#3a9d00}{𝐞} \color{#35a900}{𝐰}\color{#32b500}{𝐢}\color{#30c100}{𝐭}\color{#32cd00}{𝐡} \color{#38d900}{𝐢}\color{#40e500}{𝐭} \color{#42f002}{,} \color{#45f204}{𝐣}\color{#48f406}{𝐮}\color{#4bf608}{𝐬}\color{#4ef80a}{𝐭} \color{#51fa0c}{𝐜}\color{#54fc0e}{𝐥}\color{#57fe10}{𝐢}\color{#5aff12}{𝐜}\color{#5cff14}{𝐤} \color{#5eff16}{𝐦}\color{#60ff18}{𝐲} \color{#62ff1a}{𝐧}\color{#64ff1c}{𝐚}\color{#66ff1e}{𝐦}\color{#68ff20}{𝐞} \color{#6aff22}{𝐛}\color{#6cff24}{𝐞}\color{#6eff26}{𝐥}\color{#70ff28}{𝐨}\color{#72ff2a}{𝐰}}$
 
+<div align="center">
+
 <a href="https://hwosirgilz.straw.page">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled204.png" alt="strawpage_link" height=“500” width="100">
+
+</p>
+
+<div align="center">
+
+<img width="736" height="602" alt="7f99ecb4b842bd426c38526c85cc7dca" src="https://github.com/user-attachments/assets/f7775c82-183e-47ee-86a3-05fa34daf7b9" />
