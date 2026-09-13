@@ -77,14 +77,3 @@ $\text{\color{#c7b360}{𝐩}\color{#bda55c}{𝐫}\color{#b39a59}{𝐨}\color{#a9
 
 <a href="https://pronouns.cc/@sejopi">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled153.png" alt="prns cc" height=“500” width="100">
-
-  <div align="center">
-
-<img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled151.png" alt="no" height=“auto” width="600">
-
-https://github.com/user-attachments/assets/2b45568a-ff73-4ecb-9093-d60d67c0d9fe
-
-https://github.com/user-attachments/assets/e4cc4260-a65b-431f-8a42-991446103ac9
-
-</p>
-
