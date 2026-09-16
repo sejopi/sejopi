@@ -34,11 +34,13 @@
   
   <a href="https://github.com/mrfishsandwhich"><font color="#c7b360">𝐝𝐚𝐞</font></a><br>
 
-  <a href="https://github.com/windlesstorm"><font color="#b59b5a">𝐬𝐨𝐧𝐤𝐲 .ᐟ.ᐟ " 𝐈𝐌 𝐆𝐈𝐆𝐆𝐋𝐈𝐎𝐍𝐆 " </font></a><br>
-  
   <a href="https://github.com/pur3lies"><font color="#9c805f">𝐬𝐮𝐤𝐮𝐧𝐚 / 𝐣𝐞𝐬𝐭𝐞𝐫 " 𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄 𝐈𝐌 𝐇𝐈𝐌 " </font></a>
 
+  <a href="https://github.com/windlesstorm"><font color="#b59b5a">𝐬𝐨𝐧𝐤𝐲 .ᐟ.ᐟ " 𝐈𝐌 𝐆𝐈𝐆𝐆𝐋𝐈𝐎𝐍𝐆 " </font></a><br>
+
   <a href="https://github.com/doomfraid"><font color="#806268">𝐢𝐩𝐞𝐤 / 𝐫𝐢𝐫𝐢</font></a>
+
+  <a href="https://github.com/spikedfist"><font color="#c7b360">𝐜𝐨𝐥𝐥𝐢𝐧 / 𝐚𝐫𝐚𝐝𝐢𝐚</font></a><br>
 
   <a href="https://github.com/pouncedeleon"><font color="#806268">𝐬𝐡𝐚𝐫𝐤 / 𝐧𝐞𝐩𝐞𝐭𝐚 . . . " 𝐢𝐦 𝐭𝐡𝐞 𝐜𝐨𝐨𝐥𝐞𝐬𝐭 𝐤𝐢𝐭𝐭𝐲 𝐞𝐟𝐮𝐫 𝐁) "</font></a><br>
 
