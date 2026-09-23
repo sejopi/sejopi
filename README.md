@@ -18,7 +18,7 @@
 
 <div align="center">
 
-<img width="292" height="59" alt="fictkin" src="https://file.garden/ZroW4OcqSGtS0a5j/sejopi%20is%20mephiles.png" />
+<img width="292" height="59" alt="fictkin" src="https://file.garden/ZroW4OcqSGtS0a5j/sejopisUSERBOX.png" />
 
 </p>
 
