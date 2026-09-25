@@ -14,6 +14,8 @@
   </a>
 </p>
 
+<img width="136" height="240" alt="iowa" src="https://github.com/user-attachments/assets/e625af57-b6a8-45b8-880a-7e91f2e92b46" />
+
 [![Typing SVG](https://typingsvg.vercel.app/api/svg?width=430&height=80&backgroundColor=%2356497f&backgroundOpacity=0.5&cursorStyle=block&lines=%5B%7B%22text%22%3A%22The+Embodiment+of+Defiance%22%2C%22font%22%3A%22Courier+New%22%2C%22color%22%3A%22%23c1a544%22%2C%22fontSize%22%3A23%2C%22typingSpeed%22%3A0.06666666666666667%2C%22deleteSpeed%22%3A0.1%2C%22fontWeight%22%3A%22250%22%2C%22lineHeight%22%3A0.7%7D%5D)](https://github.com/whiteSHADOW1234/TypingSVG)
 
 <div align="center">
