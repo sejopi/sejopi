@@ -8,6 +8,12 @@
 
 </p>
 
+<div align="center">
+
+$\text{\color{#c7b360}{𝐏}\color{#c5b05f}{𝐑}\color{#c3ad5e}{𝐎}\color{#c1aa5d}{𝐉}\color{#bea75c}{𝐄}\color{#bca45b}{𝐂}\color{#baa15a}{𝐓} \color{#b89e59}{𝐙}\color{#b59b59}{𝐎}\color{#b39858}{𝐌}\color{#b09558}{𝐁}\color{#ae9258}{𝐎}\color{#ab8f58}{𝐈}\color{#a98c59}{𝐃} \color{#a78959}{𝐅}\color{#a5865a}{𝐀}\color{#a2835a}{𝐍}\color{#a0805b}{𝐒} \color{#9e7d5c}{𝐏}\color{#9b7a5d}{𝐋}\color{#99775e}{𝐙}\color{#96745f}{𝐙}\color{#947160}{𝐙}\color{#916e61}{𝐙} \color{#8f6b62}{𝐈}\color{#8c6863}{𝐍}\color{#8a6564}{𝐓}\color{#876265}{𝐄}\color{#856066}{𝐑}\color{#825d67}{𝐀}\color{#805a68}{𝐂}\color{#7d5769}{𝐓} \color{#7b546a}{𝐀}\color{#78516b}{𝐍}\color{#764e6c}{𝐃} \color{#744b6d}{𝐁}\color{#72486e}{𝐌}\color{#70456f}{𝐅} \color{#6e426f}{𝐈} \color{#6c3f70}{𝐋}\color{#6a3c71}{𝐎}\color{#683972}{𝐕}\color{#663673}{𝐄} \color{#643873}{𝐓}\color{#623a73}{𝐇}\color{#603c73}{𝐄} \color{#5e3e73}{𝐆}\color{#604276}{𝐀}\color{#624678}{𝐌}\color{#644a7a}{𝐄} \color{#664e7c}{𝐖}\color{#68527e}{𝐈}\color{#6a5680}{𝐓}\color{#6c5a82}{𝐇} \color{#6e5e84}{𝐀}\color{#705f84}{𝐋}\color{#725f84}{𝐋} \color{#745f84}{𝐌}\color{#765f84}{𝐘} \color{#785f84}{𝐇}\color{#7a5f84}{𝐄}\color{#7c5f84}{𝐀}\color{#7e5f84}{𝐑}\color{#805f84}{𝐓} \color{#825f84}{𝐈}\color{#845f84}{𝐓}\color{#865f84}{𝐒} \color{#885f84}{𝐅}\color{#8a5f84}{𝐔}\color{#8c5f84}{𝐂}\color{#8e5f84}{𝐊}\color{#905f84}{𝐈}\color{#925f84}{𝐍}\color{#945f84}{𝐆} \color{#925d84}{𝐔}\color{#905b84}{𝐍}\color{#8e5984}{𝐃}\color{#8c5784}{𝐄}\color{#8a5584}{𝐑}\color{#885384}{𝐀}\color{#865184}{𝐓}\color{#845084}{𝐄}\color{#824e84}{𝐃}}$
+
+</p>
+
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&cover_image=true&theme=spotify-embed&show_offline=false&background_color=0f1c1f&interchange=true&profanity=false&hide_remaster=false&bar_color=4f7d76&bar_color_cover=false&mode=dark">
@@ -21,8 +27,6 @@
 <div align="center">
 
 <img width="292" height="59" alt="fictkin" src="https://file.garden/ZroW4OcqSGtS0a5j/sejopisUSERBOX.png" />
-
-</p>
 
 </p>
 
