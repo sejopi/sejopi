@@ -28,6 +28,8 @@
 
 <img width="811" height="81" alt="Screenshot (762)" src="https://github.com/user-attachments/assets/f7b9a696-d3b3-41b9-b23d-c610da0ccdb6" />
 
+<img width="651" height="93" alt="Screenshot (763)" src="https://file.garden/ZroW4OcqSGtS0a5j/Screenshot_2026-09-26-09-07-27-32.jpg" />
+
 </div>
 
 <details>
