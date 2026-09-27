@@ -79,6 +79,7 @@ $\text{\color{#c7b360}{𝐩}\color{#bda55c}{𝐫}\color{#b39a59}{𝐨}\color{#a9
 
 <a href="https://pronouns.cc/@sejopi">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled153.png" alt="prns cc" height=“500” width="100">
+</a>
 
 ***
 
