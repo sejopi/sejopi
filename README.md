@@ -10,7 +10,7 @@
 
 <div align="center">
 
-https://github.com/user-attachments/assets/0500792f-bf9b-4d27-beb3-45ce992af9a3
+<img width="490" height="118" alt="IMG_20260926_211623" src="https://github.com/user-attachments/assets/bcbe5db0-50f4-4392-973d-7c8caf728066" />
 
 </p>
 
@@ -81,8 +81,7 @@ $\text{\color{#c7b360}{𝐩}\color{#bda55c}{𝐫}\color{#b39a59}{𝐨}\color{#a9
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled153.png" alt="prns cc" height=“500” width="100">
 </a>
 
-***
 
 <div align="center">
 
-<img width="736" height="602" alt="7f99ecb4b842bd426c38526c85cc7dca" src="https://github.com/user-attachments/assets/f7775c82-183e-47ee-86a3-05fa34daf7b9" />
+<img width="536" height="302" alt="7f99ecb4b842bd426c38526c85cc7dca" src="https://github.com/user-attachments/assets/f7775c82-183e-47ee-86a3-05fa34daf7b9" />
