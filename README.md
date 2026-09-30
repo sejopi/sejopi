@@ -2,6 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=sejopi&style=plastic&color=6d4a7d&label=candlelights)
 
+</p>
+
 <div align="center">
 
 <img src="https://file.garden/ZroW4OcqSGtS0a5j/homestuck-davepeta.gif" alt="AAAFHHFH" height=“600” width="500">
