@@ -45,10 +45,12 @@ $\text{\color{#c7b360}{𝐏}\color{#c5b05f}{𝐑}\color{#c3ad5e}{𝐎}\color{#c1
 <details>
   <summary> $\text{\color{#c7b360}{𝐞}\color{#bda55c}{𝐲}\color{#b39a59}{𝐞}\color{#a98f5c}{𝐬} \color{#9f825f}{𝐨}\color{#957665}{𝐧} \color{#8b6b6b}{𝐭}\color{#81606f}{𝐡}\color{#775575}{𝐞}\color{#6d4a7d}{𝐦}}$ </summary>
   <br>
-  
+ 
   <a href="https://github.com/mrfishsandwhich"><font color="#c7b360">𝐝𝐚𝐞</font></a><br>
 
   <a href="https://github.com/pur3lies"><font color="#9c805f">𝐬𝐮𝐤𝐮𝐧𝐚 / 𝐣𝐞𝐬𝐭𝐞𝐫 " 𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄 𝐈𝐌 𝐇𝐈𝐌 " </font></a>
+
+  <a href="https://github.com/Ze-Doktor"><font color="#c7b360">𝐈𝐅𝐀 𝐈𝐅𝐀 𝐈𝐅𝐀 𝐈𝐅𝐀 𝐈𝐅𝐀 𝐈𝐅𝐀</font></a><br>
 
   <a href="https://github.com/windlesstorm"><font color="#b59b5a">𝐬𝐨𝐧𝐤𝐲 .ᐟ.ᐟ " 𝐈𝐌 𝐆𝐈𝐆𝐆𝐋𝐈𝐎𝐍𝐆 " </font></a><br>
 
