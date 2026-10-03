@@ -58,7 +58,7 @@ src="https://file.garden/ZroW4OcqSGtS0a5j/BROODER.png" height="50" width="250">
 
 </p>
 
-<img width="585" height="90" alt="Screenshot (806)" src="https://github.com/user-attachments/assets/204f81d4-1e4e-4b6d-aa0d-823a686efa3a" />
+<img width="662" height="85" alt="Screenshot (806)" src="https://file.garden/ZroW4OcqSGtS0a5j/Screenshot_2026-10-03-17-38-45-52.jpg" />
 
 </div>
 
