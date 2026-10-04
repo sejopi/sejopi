@@ -80,15 +80,15 @@ src="https://file.garden/ZroW4OcqSGtS0a5j/BROODER.png" height="50" width="250">
 
   <a href="https://github.com/windlesstorm"><font color="#b59b5a">𝐬𝐨𝐧𝐤𝐲 .ᐟ.ᐟ " 𝐈𝐌 𝐆𝐈𝐆𝐆𝐋𝐈𝐎𝐍𝐆 " </font></a><br>
 
-  <a href="https://github.com/doomfraid"><font color="#806268">𝐢𝐩𝐞𝐤 / 𝐫𝐢𝐫𝐢</font></a>
+  <a href="https://github.com/doomfraid"><font color="#806268">𝐢𝐩𝐞𝐤 / 𝐫𝐢𝐫𝐢 !! = ♦ 𝐦𝐲 𝐦𝐫𝐞𝐞𝐞𝐞𝐞𝐨𝐰𝐫𝐬!! </font></a>
 
-  <a href="https://github.com/spikedfist"><font color="#c7b360">𝐜𝐨𝐥𝐥𝐢𝐧 / 𝐚𝐫𝐚𝐝𝐢𝐚</font></a><br>
+  <a href="https://github.com/spikedfist"><font color="#c7b360">𝐜𝐨𝐥𝐥𝐢𝐧 / 𝐚𝐫𝐚𝐝𝐢𝐚 !! 𝐡𝐞𝐬 𝐬𝐨 𝐜𝐨𝐨𝐥</font></a><br>
 
   <a href="https://github.com/pouncedeleon"><font color="#806268">𝐬𝐡𝐚𝐫𝐤 / 𝐧𝐞𝐩𝐞𝐭𝐚 . . . " 𝐢𝐦 𝐭𝐡𝐞 𝐜𝐨𝐨𝐥𝐞𝐬𝐭 𝐤𝐢𝐭𝐭𝐲 𝐞𝐟𝐮𝐫 𝐁) "</font></a><br>
 
-  <a href="https://github.com/acerbicSerpentine"><font color="#806268">𝐭𝐢𝐧</font></a>
+  <a href="https://github.com/acerbicSerpentine"><font color="#806268">𝐭𝐢𝐧 / 𝐯𝐫𝐢𝐬𝐤𝐚 !</font></a>
 
-  <a href="https://github.com/scientificmadman"><font color="#642e86">𝐜𝐚𝐤𝐞𝐲𝐚𝐤𝐢</font></a>
+  <a href="https://github.com/scientificmadman"><font color="#642e86">𝐜𝐚𝐤𝐞𝐲𝐚𝐤𝐢 = ♦ 𝐞𝐚𝐫𝐥𝐢𝐞𝐬𝐭 𝐦𝐫𝐞𝐞𝐨𝐰𝐬! 𝐦𝐢𝐭𝐮𝐧𝐚𝐬 𝐛𝐟 𝐛𝐭𝐰 </font></a>
   
 </details>
 
