@@ -6,6 +6,12 @@
 
 <div align="center">
 
+[![Visitors](https://api.visitorbadge.io/api/combined?path=sejopi&label=candlelights&labelColor=%23cdac1d&countColor=%234e3c74&style=plastic)](https://visitorbadge.io/status?path=sejopi)
+
+</p>
+
+<div align="center">
+
 <img src="https://file.garden/ZroW4OcqSGtS0a5j/homestuck-davepeta.gif" alt="AAAFHHFH" height=“600” width="500">
 
 </p>
