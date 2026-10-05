@@ -12,6 +12,14 @@
 
 <div align="center">
 
+<img src="https://file.garden/ZroW4OcqSGtS0a5j/ba1252b24de3afc46073f91ac75e10f4d1e71807.gif" alt="my kin" height=“540” width="304">
+
+$\text{\color{#c7b360}{↑}\color{#bda55c}{↑}\color{#b39a59}{↑} \color{#a98f5c}{𝐢}\color{#a58b5a}{𝐦} \color{#9f825f}{𝐡}\color{#9b7e60}{𝐢}\color{#977961}{𝐦} \color{#8b6b6b}{𝐟}\color{#81606f}{𝐫} \color{#775575}{↑}\color{#6d4a7d}{↑}\color{#642e86}{↑}}$
+
+</p>
+
+<div align="center">
+
 <img src="https://file.garden/ZroW4OcqSGtS0a5j/homestuck-davepeta.gif" alt="AAAFHHFH" height=“600” width="500">
 
 </p>
