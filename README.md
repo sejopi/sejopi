@@ -18,6 +18,49 @@ $\text{\color{#c7b360}{↑}\color{#bda55c}{↑}\color{#b39a59}{↑} \color{#a98f
 
 </p>
 
+<details>
+  <summary> $\text{\color{#c7b360}{𝐞}\color{#bda55c}{𝐲}\color{#b39a59}{𝐞}\color{#a98f5c}{𝐬} \color{#9f825f}{𝐨}\color{#957665}{𝐧} \color{#8b6b6b}{𝐭}\color{#81606f}{𝐡}\color{#775575}{𝐞}\color{#6d4a7d}{𝐦}}$ </summary>
+  <br>
+ 
+  <a href="https://github.com/mrfishsandwhich"><font color="#c7b360">𝐝𝐚𝐞</font></a><br>
+
+  <a href="https://github.com/pur3lies"><font color="#9c805f">𝐬𝐮𝐤𝐮𝐧𝐚 / 𝐣𝐞𝐬𝐭𝐞𝐫 " 𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄 𝐈𝐌 𝐇𝐈𝐌 " </font></a>
+
+  <a href="https://github.com/Ze-Doktor"><font color="#c7b360">𝐈𝐅𝐀 𝐈𝐅𝐀 𝐈𝐅𝐀 𝐈𝐅𝐀 𝐈𝐅𝐀 𝐈𝐅𝐀</font></a><br>
+
+  <a href="https://github.com/windlesstorm"><font color="#b59b5a">𝐬𝐨𝐧𝐤𝐲 .ᐟ.ᐟ " 𝐈𝐌 𝐆𝐈𝐆𝐆𝐋𝐈𝐎𝐍𝐆 " </font></a><br>
+
+  <a href="https://github.com/doomfraid"><font color="#806268">𝐢𝐩𝐞𝐤 / 𝐫𝐢𝐫𝐢 !! = ♦ 𝐦𝐲 𝐦𝐫𝐞𝐞𝐞𝐞𝐞𝐨𝐰𝐫𝐬!! </font></a>
+
+  <a href="https://github.com/spikedfist"><font color="#c7b360">𝐜𝐨𝐥𝐥𝐢𝐧 / 𝐚𝐫𝐚𝐝𝐢𝐚 !! 𝐡𝐞𝐬 𝐬𝐨 𝐜𝐨𝐨𝐥</font></a><br>
+
+  <a href="https://github.com/pouncedeleon"><font color="#806268">𝐬𝐡𝐚𝐫𝐤 / 𝐧𝐞𝐩𝐞𝐭𝐚 . . . " 𝐢𝐦 𝐭𝐡𝐞 𝐜𝐨𝐨𝐥𝐞𝐬𝐭 𝐤𝐢𝐭𝐭𝐲 𝐞𝐟𝐮𝐫 𝐁) "</font></a><br>
+
+  <a href="https://github.com/acerbicSerpentine"><font color="#806268">𝐭𝐢𝐧 / 𝐯𝐫𝐢𝐬𝐤𝐚 !</font></a>
+
+  <a href="https://github.com/scientificmadman"><font color="#642e86">𝐜𝐚𝐤𝐞𝐲𝐚𝐤𝐢 = ♦ 𝐞𝐚𝐫𝐥𝐢𝐞𝐬𝐭 𝐦𝐫𝐞𝐞𝐨𝐰𝐬! 𝐦𝐢𝐭𝐮𝐧𝐚𝐬 𝐛𝐟 𝐛𝐭𝐰 </font></a>
+  
+</details>
+
+</div>
+
+$\text\large{\color{#c7b360}{𝐥}\color{#b59b5a}{𝐢}\color{#9c805f}{𝐧}\color{#806268}{𝐤}\color{#642e86}{𝐬}}$
+
+$\text{\color{#c7b360}{↶ 𝐬}\color{#bda55c}{𝐭𝐫}\color{#b39a59}{𝐚𝐰}\color{#a98f5c}{𝐩𝐚}\color{#9f825f}{𝐠𝐞}\color{#957665}{ , }\color{#8b6b6b}{𝐚𝐭}\color{#81606f}{𝐚𝐛}\color{#775575}{𝐨𝐨}\color{#6d4a7d}{𝐤 ↷}}$
+
+<a href="https://sejopi.straw.page">
+  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled149.png" alt="strawpage_link" height=“500” width="100">
+  <a href="https://sejopi.atabook.org/">
+  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled147_20260828154125.png" alt="atabook_link" width=100 height=“500” " >
+
+<div align="center">
+
+$\text{\color{#c7b360}{𝐩}\color{#bda55c}{𝐫}\color{#b39a59}{𝐨}\color{#a98f5c}{𝐧}\color{#9f825f}{𝐨}\color{#957665}{𝐮}\color{#8b6b6b}{𝐧}\color{#81606f}{𝐬}\color{#775575}{.}\color{#6d4a7d}{𝐜}\color{#642e86}{𝐜}}$
+
+<a href="https://pronouns.cc/@sejopi">
+  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled153.png" alt="prns cc" height=“500” width="100">
+</a>
+
 <div align="center">
 
 <img src="https://file.garden/ZroW4OcqSGtS0a5j/homestuck-davepeta.gif" alt="AAAFHHFH" height=“600” width="500">
@@ -73,50 +116,6 @@ src="https://file.garden/ZroW4OcqSGtS0a5j/BROODER.png" height="50" width="250">
 </p>
 
 <img width="662" height="85" alt="Screenshot (806)" src="https://file.garden/ZroW4OcqSGtS0a5j/Screenshot_2026-10-03-17-38-45-52.jpg" />
-
-</div>
-
-<details>
-  <summary> $\text{\color{#c7b360}{𝐞}\color{#bda55c}{𝐲}\color{#b39a59}{𝐞}\color{#a98f5c}{𝐬} \color{#9f825f}{𝐨}\color{#957665}{𝐧} \color{#8b6b6b}{𝐭}\color{#81606f}{𝐡}\color{#775575}{𝐞}\color{#6d4a7d}{𝐦}}$ </summary>
-  <br>
- 
-  <a href="https://github.com/mrfishsandwhich"><font color="#c7b360">𝐝𝐚𝐞</font></a><br>
-
-  <a href="https://github.com/pur3lies"><font color="#9c805f">𝐬𝐮𝐤𝐮𝐧𝐚 / 𝐣𝐞𝐬𝐭𝐞𝐫 " 𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄𝐌𝐄 𝐈𝐌 𝐇𝐈𝐌 " </font></a>
-
-  <a href="https://github.com/Ze-Doktor"><font color="#c7b360">𝐈𝐅𝐀 𝐈𝐅𝐀 𝐈𝐅𝐀 𝐈𝐅𝐀 𝐈𝐅𝐀 𝐈𝐅𝐀</font></a><br>
-
-  <a href="https://github.com/windlesstorm"><font color="#b59b5a">𝐬𝐨𝐧𝐤𝐲 .ᐟ.ᐟ " 𝐈𝐌 𝐆𝐈𝐆𝐆𝐋𝐈𝐎𝐍𝐆 " </font></a><br>
-
-  <a href="https://github.com/doomfraid"><font color="#806268">𝐢𝐩𝐞𝐤 / 𝐫𝐢𝐫𝐢 !! = ♦ 𝐦𝐲 𝐦𝐫𝐞𝐞𝐞𝐞𝐞𝐨𝐰𝐫𝐬!! </font></a>
-
-  <a href="https://github.com/spikedfist"><font color="#c7b360">𝐜𝐨𝐥𝐥𝐢𝐧 / 𝐚𝐫𝐚𝐝𝐢𝐚 !! 𝐡𝐞𝐬 𝐬𝐨 𝐜𝐨𝐨𝐥</font></a><br>
-
-  <a href="https://github.com/pouncedeleon"><font color="#806268">𝐬𝐡𝐚𝐫𝐤 / 𝐧𝐞𝐩𝐞𝐭𝐚 . . . " 𝐢𝐦 𝐭𝐡𝐞 𝐜𝐨𝐨𝐥𝐞𝐬𝐭 𝐤𝐢𝐭𝐭𝐲 𝐞𝐟𝐮𝐫 𝐁) "</font></a><br>
-
-  <a href="https://github.com/acerbicSerpentine"><font color="#806268">𝐭𝐢𝐧 / 𝐯𝐫𝐢𝐬𝐤𝐚 !</font></a>
-
-  <a href="https://github.com/scientificmadman"><font color="#642e86">𝐜𝐚𝐤𝐞𝐲𝐚𝐤𝐢 = ♦ 𝐞𝐚𝐫𝐥𝐢𝐞𝐬𝐭 𝐦𝐫𝐞𝐞𝐨𝐰𝐬! 𝐦𝐢𝐭𝐮𝐧𝐚𝐬 𝐛𝐟 𝐛𝐭𝐰 </font></a>
-  
-</details>
-
-$\text\large{\color{#c7b360}{𝐥}\color{#b59b5a}{𝐢}\color{#9c805f}{𝐧}\color{#806268}{𝐤}\color{#642e86}{𝐬}}$
-
-$\text{\color{#c7b360}{↶ 𝐬}\color{#bda55c}{𝐭𝐫}\color{#b39a59}{𝐚𝐰}\color{#a98f5c}{𝐩𝐚}\color{#9f825f}{𝐠𝐞}\color{#957665}{ , }\color{#8b6b6b}{𝐚𝐭}\color{#81606f}{𝐚𝐛}\color{#775575}{𝐨𝐨}\color{#6d4a7d}{𝐤 ↷}}$
-
-<a href="https://sejopi.straw.page">
-  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled149.png" alt="strawpage_link" height=“500” width="100">
-  <a href="https://sejopi.atabook.org/">
-  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled147_20260828154125.png" alt="atabook_link" width=100 height=“500” " >
-
-<div align="center">
-
-$\text{\color{#c7b360}{𝐩}\color{#bda55c}{𝐫}\color{#b39a59}{𝐨}\color{#a98f5c}{𝐧}\color{#9f825f}{𝐨}\color{#957665}{𝐮}\color{#8b6b6b}{𝐧}\color{#81606f}{𝐬}\color{#775575}{.}\color{#6d4a7d}{𝐜}\color{#642e86}{𝐜}}$
-
-<a href="https://pronouns.cc/@sejopi">
-  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled153.png" alt="prns cc" height=“500” width="100">
-</a>
-
 
 <div align="center">
 
