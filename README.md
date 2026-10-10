@@ -12,9 +12,15 @@
 
 <div align="center">
 
+$\text{\color{#c7b360}{𝐡}\color{#c4af60}{𝐰}\color{#c1ab5f}{𝐨}\color{#bea75e}{𝐚}\color{#bba35d}{𝐫}\color{#b89f5c}{𝐚}\color{#b59b5b}{𝐧}\color{#b2975a}{𝐠} \color{#af9359}{𝐡}\color{#ac9059}{𝐯}\color{#a98d59}{𝐲}\color{#a68a59}{𝐤}\color{#a3875a}{𝐢}\color{#a0845a}{𝐧} \color{#9d815b}{+} \color{#9a7e5c}{𝐬}\color{#977b5d}{𝐞}\color{#94785e}{𝐥}\color{#91755f}{𝐟}\color{#8e7260}{𝐬}\color{#8b6f61}{𝐡}\color{#886c62}{𝐢}\color{#856963}{𝐩}\color{#826664}{𝐩}\color{#7f6365}{𝐞}\color{#7c6066}{𝐫} \color{#795d67}{+} \color{#765a68}{𝐦}\color{#735769}{𝐚}\color{#70546a}{𝐢}\color{#6d516b}{𝐧} \color{#6a4e6c}{𝐢}\color{#674b6d}{𝐦} \color{#64486e}{𝐧}\color{#61456f}{𝐨}\color{#5e4270}{𝐭} \color{#5b3f71}{𝐝}\color{#583c72}{𝐨}\color{#553973}{𝐰}\color{#523674}{𝐧}\color{#4f3375}{𝐛}\color{#4c3076}{𝐚}\color{#492d77}{𝐝} \color{#402778}{𝐦}\color{#3d2677}{𝐚}\color{#392675}{𝐲}\color{#362674}{𝐛}\color{#332673}{𝐞}}$
+
+</p>
+
+<div align="center">
+
 <img src="https://file.garden/ZroW4OcqSGtS0a5j/ba1252b24de3afc46073f91ac75e10f4d1e71807.gif" alt="my kin" height=“640” width="404">
 
-$\text{\color{#c7b360}{↑}\color{#bda55c}{↑}\color{#b39a59}{↑} \color{#a98f5c}{𝐢}\color{#a58b5a}{𝐦} \color{#9f825f}{𝐡}\color{#9b7e60}{𝐢}\color{#977961}{𝐦} \color{#8b6b6b}{𝐟}\color{#81606f}{𝐫} \color{#775575}{↑}\color{#6d4a7d}{↑}\color{#642e86}{↑}}$
+$\text{\color{#c7b360}{↑}\color{#c1ab5c}{↑}\color{#bba259}{↑} \color{#b59a58}{𝐫}\color{#af9158}{𝐨}\color{#a9885a}{𝐬}\color{#a37f5c}{𝐬}\color{#9d765f}{!}\color{#976d62}{!} \color{#916465}{𝐢}\color{#8b6b6b}{𝐦} \color{#85666e}{𝐡}\color{#7f6171}{𝐢}\color{#795b73}{𝐦} \color{#735675}{𝐟}\color{#6d4a7d}{𝐫} \color{#642e86}{↑}\color{#642e86}{↑}\color{#642e86}{↑}}$
 
 </p>
 
@@ -44,79 +50,28 @@ $\text{\color{#c7b360}{↑}\color{#bda55c}{↑}\color{#b39a59}{↑} \color{#a98f
 
 </div>
 
-$\text\large{\color{#c7b360}{𝐥}\color{#b59b5a}{𝐢}\color{#9c805f}{𝐧}\color{#806268}{𝐤}\color{#642e86}{𝐬}}$
+$\text\large{\color{#c7b360}{৻  𝐥}\color{#b59b5a}{𝐢}\color{#9c805f}{𝐧}\color{#806268}{𝐤}\color{#642e86}{𝐬  ৲}}$
 
-$\text{\color{#c7b360}{↶ 𝐬}\color{#bda55c}{𝐭𝐫}\color{#b39a59}{𝐚𝐰}\color{#a98f5c}{𝐩𝐚}\color{#9f825f}{𝐠𝐞}\color{#957665}{ , }\color{#8b6b6b}{𝐚𝐭}\color{#81606f}{𝐚𝐛}\color{#775575}{𝐨𝐨}\color{#6d4a7d}{𝐤 ↷}}$
+$\text{\color{#c7b360}{𝐬}\color{#bda55c}{𝐭𝐫}\color{#b39a59}{𝐚𝐰}\color{#a98f5c}{𝐩𝐚}\color{#9f825f}{𝐠𝐞}\color{#957665}{ , }\color{#8b6b6b}{𝐚𝐭}\color{#81606f}{𝐚𝐛}\color{#775575}{𝐨𝐨}\color{#6d4a7d}{𝐤}}$ $\text{\color{#c7b360}\color{#bda55c}{ , }{𝐩}\color{#bda55c}{𝐫}\color{#b39a59}{𝐨}\color{#a98f5c}{𝐧}\color{#9f825f}{𝐨}\color{#957665}{𝐮}\color{#8b6b6b}{𝐧}\color{#81606f}{𝐬}\color{#775575}{.}\color{#6d4a7d}{𝐜}\color{#642e86}{𝐜}}$
 
 <a href="https://sejopi.straw.page">
-  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled149.png" alt="strawpage_link" height=“500” width="100">
+  <img src="https://file.garden/ZroW4OcqSGtS0a5j/icon%5B1%5D.png" alt="strawpage_link" height=“50” width="50">
   <a href="https://sejopi.atabook.org/">
-  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled147_20260828154125.png" alt="atabook_link" width=100 height=“500” " >
-
-<div align="center">
-
-$\text{\color{#c7b360}{𝐩}\color{#bda55c}{𝐫}\color{#b39a59}{𝐨}\color{#a98f5c}{𝐧}\color{#9f825f}{𝐨}\color{#957665}{𝐮}\color{#8b6b6b}{𝐧}\color{#81606f}{𝐬}\color{#775575}{.}\color{#6d4a7d}{𝐜}\color{#642e86}{𝐜}}$
-
+  <img src="https://file.garden/ZroW4OcqSGtS0a5j/icon%5B2%5D.png" alt="atabook_link" width=50 height=“50” " >
 <a href="https://pronouns.cc/@sejopi">
-  <img src="https://file.garden/ZroW4OcqSGtS0a5j/Untitled153.png" alt="prns cc" height=“500” width="100">
+  <img src="https://file.garden/ZroW4OcqSGtS0a5j/icon%5B3%5D.png" alt="prns cc" height=“50” width="50">
 </a>
 
-<div align="center">
+<details>
+  <summary> $\text{\color{#c7b360}{𝐭}\color{#c1ab5c}{𝐲} \color{#bba259}{𝐩}\color{#b59a58}{𝐨}\color{#af9158}{𝐧}\color{#a9885a}{𝐲} \color{#a37f5c}{𝐭}\color{#9d765f}{𝐨}\color{#976d62}{𝐰}\color{#916465}{𝐧} \color{#8b6b6b}{𝐭}\color{#81606f}{𝐢}\color{#775575}{𝐭}\color{#6d4a7d}{𝐥}\color{#642e86}{𝐞} \color{#642e86}{𝐚}\color{#642e86}{𝐜}\color{#642e86}{𝐜}\color{#642e86}{𝐬}:}$ </summary>
+  <br>
+ 
+  <a href="https://github.com/pt-hall-of-media">𝐩𝐭'𝐬 𝐜𝐨𝐩𝐩𝐞𝐫 𝐰𝐢𝐬𝐡𝐥𝐢𝐧𝐠, 𝐡𝐰𝐨𝐚𝐫𝐚𝐧𝐠 𝐚𝐧𝐝 𝐮𝐡𝐮𝐡𝐡 𝐛𝐲 𝐱𝐱𝐚𝐧𝐭𝐞𝐫𝐢𝐚</a><br>
 
-<img src="https://file.garden/ZroW4OcqSGtS0a5j/homestuck-davepeta.gif" alt="AAAFHHFH" height=“600” width="500">
+  <a href="https://github.com/pt-heavyfictkin">𝐧𝐮𝐥𝐥 [𝐫𝐞𝐠𝐫𝐞𝐭𝐞𝐯𝐚𝐭𝐨𝐫] 𝐡𝐞𝐚𝐯𝐲𝐟𝐢𝐜𝐭𝐤𝐢𝐧</a>
 
-</p>
-
-<div align="center">
-
-<img width="490" height="118" alt="IMG_20260926_211623" src="https://github.com/user-attachments/assets/bcbe5db0-50f4-4392-973d-7c8caf728066" />
-
-</p>
-
-<div align="center">
-
-$\text{\color{#c7b360}{𝐏}\color{#c5b05f}{𝐑}\color{#c3ad5e}{𝐎}\color{#c1aa5d}{𝐉}\color{#bea75c}{𝐄}\color{#bca45b}{𝐂}\color{#baa15a}{𝐓} \color{#b89e59}{𝐙}\color{#b59b59}{𝐎}\color{#b39858}{𝐌}\color{#b09558}{𝐁}\color{#ae9258}{𝐎}\color{#ab8f58}{𝐈}\color{#a98c59}{𝐃} \color{#a78959}{𝐅}\color{#a5865a}{𝐀}\color{#a2835a}{𝐍}\color{#a0805b}{𝐒} \color{#9e7d5c}{𝐏}\color{#9b7a5d}{𝐋}\color{#99775e}{𝐙}\color{#96745f}{𝐙}\color{#947160}{𝐙}\color{#916e61}{𝐙} \color{#8f6b62}{𝐈}\color{#8c6863}{𝐍}\color{#8a6564}{𝐓}\color{#876265}{𝐄}\color{#856066}{𝐑}\color{#825d67}{𝐀}\color{#805a68}{𝐂}\color{#7d5769}{𝐓} \color{#7b546a}{𝐀}\color{#78516b}{𝐍}\color{#764e6c}{𝐃} \color{#744b6d}{𝐁}\color{#72486e}{𝐌}\color{#70456f}{𝐅} \color{#6e426f}{𝐈} \color{#6c3f70}{𝐋}\color{#6a3c71}{𝐎}\color{#683972}{𝐕}\color{#663673}{𝐄} \color{#643873}{𝐓}\color{#623a73}{𝐇}\color{#603c73}{𝐄} \color{#5e3e73}{𝐆}\color{#604276}{𝐀}\color{#624678}{𝐌}\color{#644a7a}{𝐄} \color{#664e7c}{𝐖}\color{#68527e}{𝐈}\color{#6a5680}{𝐓}\color{#6c5a82}{𝐇} \color{#6e5e84}{𝐀}\color{#705f84}{𝐋}\color{#725f84}{𝐋} \color{#745f84}{𝐌}\color{#765f84}{𝐘} \color{#785f84}{𝐇}\color{#7a5f84}{𝐄}\color{#7c5f84}{𝐀}\color{#7e5f84}{𝐑}\color{#805f84}{𝐓} \color{#825f84}{𝐈}\color{#845f84}{𝐓}\color{#865f84}{𝐒} \color{#885f84}{𝐅}\color{#8a5f84}{𝐔}\color{#8c5f84}{𝐂}\color{#8e5f84}{𝐊}\color{#905f84}{𝐈}\color{#925f84}{𝐍}\color{#945f84}{𝐆} \color{#925d84}{𝐔}\color{#905b84}{𝐍}\color{#8e5984}{𝐃}\color{#8c5784}{𝐄}\color{#8a5584}{𝐑}\color{#885384}{𝐀}\color{#865184}{𝐓}\color{#845084}{𝐄}\color{#824e84}{𝐃}}$
-
-</p>
-
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31zagpfr6pvi7t6x6m2d3nsey5fi&cover_image=true&theme=spotify-embed&show_offline=false&background_color=0f1c1f&interchange=true&profanity=false&hide_remaster=false&bar_color=4f7d76&bar_color_cover=false&mode=dark">
-  </a>
-</p>
-
-<p align="center">
+  <a href="https://github.com/kaotown">𝐜𝐥𝐨𝐮𝐝 𝐡𝐚𝐞𝐭𝐚𝐞 𝐜𝐨𝐨𝐤𝐢𝐞'𝐬 𝐛𝐢𝐠𝐠𝐞𝐬𝐭 𝐟𝐚𝐧</a><br>
   
-  <a href="https://pzwiki.net/wiki/Restless_Sleeper">
-    <img src="https://file.garden/ZroW4OcqSGtS0a5j/INSOMNIAC.png" height="50" width="250">
-<a href="https://pzwiki.net/wiki/Brooding">
-   <img
-src="https://file.garden/ZroW4OcqSGtS0a5j/BROODER.png" height="50" width="250">
-  
-  </a>
-  
-</p>
+</details>
 
-<img width="136" height="240" alt="iowa" src="https://github.com/user-attachments/assets/e625af57-b6a8-45b8-880a-7e91f2e92b46" />
-
-[![Typing SVG](https://typingsvg.vercel.app/api/svg?width=430&height=80&backgroundColor=%2356497f&backgroundOpacity=0.5&cursorStyle=block&lines=%5B%7B%22text%22%3A%22The+Embodiment+of+Defiance%22%2C%22font%22%3A%22Courier+New%22%2C%22color%22%3A%22%23c1a544%22%2C%22fontSize%22%3A23%2C%22typingSpeed%22%3A0.06666666666666667%2C%22deleteSpeed%22%3A0.1%2C%22fontWeight%22%3A%22250%22%2C%22lineHeight%22%3A0.7%7D%5D)](https://github.com/whiteSHADOW1234/TypingSVG)
-
-<div align="center">
-
-<img width="292" height="59" alt="fictkin" src="https://file.garden/ZroW4OcqSGtS0a5j/sejopisUSERBOX.png" />
-
-</p>
-
-<img width="811" height="81" alt="Screenshot (762)" src="https://github.com/user-attachments/assets/f7b9a696-d3b3-41b9-b23d-c610da0ccdb6" />
-
-</p>
-
-<img width="651" height="93" alt="Screenshot (763)" src="https://file.garden/ZroW4OcqSGtS0a5j/Screenshot_2026-09-26-09-07-27-32.jpg" />
-
-</p>
-
-<img width="662" height="85" alt="Screenshot (806)" src="https://file.garden/ZroW4OcqSGtS0a5j/Screenshot_2026-10-03-17-38-45-52.jpg" />
-
-<div align="center">
-
-<img width="536" height="302" alt="7f99ecb4b842bd426c38526c85cc7dca" src="https://github.com/user-attachments/assets/f7775c82-183e-47ee-86a3-05fa34daf7b9" />
+</div>
