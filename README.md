@@ -52,7 +52,7 @@ $\text{\color{#c7b360}{↑}\color{#c1ab5c}{↑}\color{#bba259}{↑} \color{#b59a
 
 $\text\large{\color{#c7b360}{৻  𝐥}\color{#b59b5a}{𝐢}\color{#9c805f}{𝐧}\color{#806268}{𝐤}\color{#642e86}{𝐬  ৲}}$
 
-$\text{\color{#c7b360}{ⅰ}\color{#c1ab5c}{.} \color{#bba259}{𝐬}\color{#b59a58}{𝐭}\color{#af9158}{𝐫}\color{#a9885a}{𝐚}\color{#a37f5c}{𝐰}\color{#9d765f}{𝐩} \color{#976d62}{,} \color{#916465}{ⅱ}\color{#8b6b6b}{.} \color{#85666e}{𝐚}\color{#7f6171}{𝐭}\color{#795b73}{𝐚} \color{#735675}{,} \color{#6d516b}{ⅲ}\color{#674b6d}{,} \color{#61456f}{𝐩}\color{#5b3f71}{𝐫}\color{#553973}{𝐨}\color{#4f3375}{𝐧}\color{#492d77}{𝐨}\color{#432779}{𝐮}\color{#3d2677}{𝐧}\color{#362674}{𝐬}\color{#30236f}{.}\color{#2b206a}{𝐜}\color{#261d65}{𝐜}}$
+$\text{\color{#c7b360}{灬} \color{#c1ab5c}{ⅰ}\color{#bba259}{.} \color{#b59a58}{𝐬}\color{#af9158}{𝐭}\color{#a9885a}{𝐫}\color{#a37f5c}{𝐚}\color{#9d765f}{𝐰}\color{#976d62}{𝐩} , \color{#916465}{ⅱ}\color{#8b6b6b}{.} \color{#856963}{𝐚}\color{#7f6365}{𝐭}\color{#795d67}{𝐚} , \color{#775575}{ⅲ}\color{#73516f}{.} \color{#704d75}{𝐩}\color{#6d497a}{𝐫}\color{#6a457e}{𝐨}\color{#674182}{𝐧}\color{#643d86}{𝐨}\color{#642e86}{𝐮}\color{#642e86}{𝐧}\color{#642e86}{𝐬}\color{#642e86}{.}\color{#642e86}{𝐜}\color{#642e86}{𝐜} , \color{#642e86}{ⅳ}\color{#642e86}{.} \color{#642e86}{𝐩}\color{#642e86}{𝐫}\color{#642e86}{𝐨}\color{#642e86}{𝐧}\color{#642e86}{𝐨}\color{#642e86}{𝐮}\color{#642e86}{𝐧}\color{#642e86}{𝐬}\color{#642e86}{.}\color{#642e86}{𝐜}\color{#642e86}{𝐜} \color{#642e86}{灬}}$
 
 <a href="https://sejopi.straw.page">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/icon%5B1%5D.png" alt="strawpage_link" height=“50” width="50">
@@ -60,6 +60,8 @@ $\text{\color{#c7b360}{ⅰ}\color{#c1ab5c}{.} \color{#bba259}{𝐬}\color{#b59a5
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/icon%5B2%5D.png" alt="atabook_link" width=50 height=“50” " >
 <a href="https://pronouns.cc/@sejopi">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/icon%5B3%5D.png" alt="prns cc" height=“50” width="50">
+  <a href="https://guns.lol/sejopi">
+  <img src="https://file.garden/ZroW4OcqSGtS0a5j/icon%5B4%5D.png" alt="guns lol" height=“50” width="50">
 </a>
 
 <details>
