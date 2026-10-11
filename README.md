@@ -12,6 +12,8 @@
 
 <div align="center">
 
+<img src="https://img1.picmix.com/output/pic/normal/9/3/2/5/12135239_86425.gif" alt="my heaviest kin + husband" height=“auto” width="400">
+
 $\text{\color{#c7b360}{𝐡}\color{#c4af60}{𝐰}\color{#c1ab5f}{𝐨}\color{#bea75e}{𝐚}\color{#bba35d}{𝐫}\color{#b89f5c}{𝐚}\color{#b59b5b}{𝐧}\color{#b2975a}{𝐠} \color{#af9359}{𝐡}\color{#ac9059}{𝐯}\color{#a98d59}{𝐲}\color{#a68a59}{𝐤}\color{#a3875a}{𝐢}\color{#a0845a}{𝐧} \color{#9d815b}{+} \color{#9a7e5c}{𝐬}\color{#977b5d}{𝐞}\color{#94785e}{𝐥}\color{#91755f}{𝐟}\color{#8e7260}{𝐬}\color{#8b6f61}{𝐡}\color{#886c62}{𝐢}\color{#856963}{𝐩}\color{#826664}{𝐩}\color{#7f6365}{𝐞}\color{#7c6066}{𝐫} \color{#795d67}{+} \color{#765a68}{𝐦}\color{#735769}{𝐚}\color{#70546a}{𝐢}\color{#6d516b}{𝐧} \color{#6a4e6c}{𝐢}\color{#674b6d}{𝐦} \color{#64486e}{𝐧}\color{#61456f}{𝐨}\color{#5e4270}{𝐭} \color{#5b3f71}{𝐝}\color{#583c72}{𝐨}\color{#553973}{𝐰}\color{#523674}{𝐧}\color{#4f3375}{𝐛}\color{#4c3076}{𝐚}\color{#492d77}{𝐝} \color{#402778}{𝐦}\color{#3d2677}{𝐚}\color{#392675}{𝐲}\color{#362674}{𝐛}\color{#332673}{𝐞}}$
 
 </p>
