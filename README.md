@@ -88,12 +88,12 @@ $\text{\color{#c7b360}{灬} \color{#c1ab5c}{ⅰ}\color{#bba259}{.} \color{#b59a5
     <tr>
       <td>
 <details>
-  <summary> 𝐝𝐧𝐢 </summary>
+  <summary> $\text{\color{#c7b360}{𝐝}\color{#8b6b6b}{𝐧}\color{#642e86}{𝐢}}$ </summary>
   <br>
  
-- 𝐞𝐱 𝐟𝐫𝐢𝐞𝐧𝐝𝐬
-- 𝐡𝐨𝐰𝐞𝐯𝐞𝐫 𝐢 𝐛𝐥𝐨𝐜𝐤 𝐟𝐫𝐞𝐞𝐥𝐲 𝐣𝐮𝐬𝐭 𝐝𝐨𝐧'𝐭 𝐛𝐞 𝐨𝐯𝐞𝐫𝐥𝐲 𝐧𝐞𝐠𝐚𝐭𝐢𝐯𝐞 𝐨𝐫 𝐰𝐞𝐢𝐫𝐝
+- $\text{\color{#c7b360}{𝐞}\color{#bda55c}{𝐱} \color{#a98f5c}{𝐟}\color{#9e805e}{𝐫}\color{#8b6b6b}{𝐢}\color{#775575}{𝐞}\color{#642e86}{𝐧}\color{#642e86}{𝐝}\color{#642e86}{𝐬}}$
 
+- $\text{\color{#c7b360}{𝐡}\color{#c7b360}{𝐨}\color{#c1ab5c}{𝐰}\color{#c1ab5c}{𝐞}\color{#bda55c}{𝐯}\color{#bda55c}{𝐞}\color{#b5a05c}{𝐫} \color{#b5a05c}{𝐢} \color{#a98f5c}{𝐛}\color{#a98f5c}{𝐥}\color{#9e805e}{𝐨}\color{#9e805e}{𝐜}\color{#8b6b6b}{𝐤} \color{#8b6b6b}{𝐟}\color{#8b6b6b}{𝐫}\color{#775575}{𝐞}\color{#775575}{𝐞}\color{#775575}{𝐥}\color{#775575}{𝐲} \color{#a98f5c}{𝐣}\color{#a98f5c}{𝐮}\color{#a98f5c}{𝐬}\color{#a98f5c}{𝐭} \color{#a98f5c}{𝐝}\color{#a98f5c}{𝐨}\color{#a98f5c}{𝐧}\color{#a98f5c}{'}\color{#a98f5c}{𝐭} \color{#9e805e}{𝐛}\color{#9e805e}{𝐞} \color{#8b6b6b}{𝐨}\color{#8b6b6b}{𝐯}\color{#8b6b6b}{𝐞}\color{#8b6b6b}{𝐫}\color{#775575}{𝐥}\color{#775575}{𝐲} \color{#775575}{𝐧}\color{#775575}{𝐞}\color{#642e86}{𝐠}\color{#642e86}{𝐚}\color{#642e86}{𝐭}\color{#642e86}{𝐢}\color{#642e86}{𝐯}\color{#642e86}{𝐞} \color{#642e86}{𝐨}\color{#642e86}{𝐫} \color{#642e86}{𝐰}\color{#642e86}{𝐞}\color{#642e86}{𝐢}\color{#642e86}{𝐫}\color{#642e86}{𝐝}}$
   <br>
 </table>
  </details>
@@ -102,17 +102,24 @@ $\text{\color{#c7b360}{灬} \color{#c1ab5c}{ⅰ}\color{#bba259}{.} \color{#b59a5
     <tr>
       <td>
 <details>
-  <summary> 𝐛𝟒 𝐲𝐨𝐮 𝐢𝐧𝐭𝐞𝐫𝐚𝐜𝐭 / 𝐛𝐦𝐟 </summary>
+  <summary> $\text{\color{#c7b360}{𝐛}\color{#bda55c}{𝟒} \color{#b5a05c}{𝐲}\color{#a98f5c}{𝐨}\color{#9e805e}{𝐮} \color{#8b6b6b}{𝐢}\color{#84636c}{𝐧}\color{#7d5b71}{𝐭}\color{#775575}{𝐞}\color{#715078}{𝐫}\color{#6c457f}{𝐚}\color{#684081}{𝐜}\color{#642e86}{𝐭} \color{#642e86}{/} \color{#642e86}{𝐛}\color{#642e86}{𝐦}\color{#642e86}{𝐟}}$ </summary>
   <br>
  
-- 𝐢 𝐡𝐚𝐯𝐞 𝐢𝐧𝐭𝐞𝐫𝐩𝐞𝐫𝐬𝐨𝐧𝐚𝐥 𝐢𝐬𝐬𝐮𝐞𝐬
-- 𝐢 𝐡𝐚𝐯𝐞 𝐦𝐨𝐨𝐝 𝐬𝐰𝐢𝐧𝐠𝐬
-- 𝐞𝐦𝐨𝐭𝐢𝐨𝐧𝐚𝐥𝐥𝐲 𝐞𝐱𝐩𝐫𝐞𝐬𝐬𝐢𝐯𝐞 𝐢 𝐥𝐨𝐯𝐞 𝐭𝐨 𝐮𝐬𝐞 𝐞𝐦𝐨𝐭𝐢𝐜𝐨𝐧𝐬
-- 𝐰𝐨𝐧𝐭 𝐜𝐡𝐚𝐭 𝐭𝐨 𝐮 𝐟𝐢𝐫𝐬𝐭 𝐮𝐧𝐥𝐞𝐬𝐬 𝐢𝐦 𝐢𝐧𝐭𝐫𝐢𝐠𝐮𝐞𝐝 𝐨𝐟 𝐮
-- 𝐢𝐦 𝐧𝐨𝐭 𝐜𝐨𝐦𝐟 𝐡𝐚𝐯𝐢𝐧𝐠 𝐫𝐨𝐦𝐚𝐧𝐭𝐢𝐜 𝐢𝐧𝐭𝐢𝐦𝐚𝐜𝐲 𝐛𝐫𝐨𝐮𝐠𝐡𝐭 𝐮𝐩 𝐨𝐫 𝐞𝐯𝐞𝐧 𝐚𝐬 𝐚 𝐣𝐨𝐤𝐞 𝐢𝐟 𝐜𝐨𝐧𝐬𝐭𝐚𝐧𝐭𝐥𝐲
-- 𝐢𝐦 𝐛𝐨𝐫𝐞𝐝 𝐞𝐚𝐬𝐢𝐥𝐲 𝐰 𝐬𝐦𝐚𝐥𝐥 𝐭𝐚𝐥𝐤𝐬
-- 𝐦𝐨𝐬𝐭𝐥𝐲 𝐬𝐢𝐥𝐞𝐧𝐭 𝐚𝐥𝐥 𝐭𝐡𝐞 𝐭𝐢𝐦𝐞 , 𝐠𝐨 𝐭𝐚𝐥𝐤 𝐚𝐛𝐭 𝐦𝐲 𝐟𝐚𝐯 𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬 𝐢𝐧𝐬𝐭𝐞𝐚𝐝 𝐭𝐨 𝐠𝐞𝐭 𝐦𝐲 𝐚𝐭𝐭𝐞𝐧𝐭𝐢𝐨𝐧
-- 𝐢𝐝𝐦 𝐝𝐨𝐮𝐛𝐥𝐞𝐬 , 𝐲𝐮𝐦𝐞𝐬𝐡𝐢𝐩𝐬 𝐝𝐨 𝐢𝐧𝐭 𝐰 𝐜𝐚𝐫𝐞 𝐨𝐫 𝐝𝐧𝐢 𝐜𝐨𝐦𝐩𝐥𝐞𝐭𝐞𝐥𝐲 , 𝐦𝐚𝐤𝐞 𝐢𝐭 𝐞𝐚𝐬𝐢𝐞𝐫 𝐟𝐨𝐫 𝐮𝐬 𝐛𝐨𝐭𝐡.
+- $\text{\color{#c7b360}{𝐢} \color{#bda55c}{𝐡𝐚𝐯𝐞} \color{#a98f5c}{𝐢𝐧𝐭𝐞𝐫𝐩𝐞𝐫𝐬𝐨𝐧𝐚𝐥} \color{#8b6b6b}{𝐢𝐬𝐬𝐮𝐞𝐬}}$
+
+- $\text{\color{#c7b360}{𝐢} \color{#bda55c}{𝐡𝐚𝐯𝐞} \color{#a98f5c}{𝐦𝐨𝐨𝐝} \color{#8b6b6b}{𝐬𝐰𝐢𝐧𝐠𝐬}}$
+
+- $\text{\color{#c7b360}{𝐞𝐦𝐨𝐭𝐢𝐨𝐧𝐚𝐥𝐥𝐲} \color{#bda55c}{𝐞𝐱𝐩𝐫𝐞𝐬𝐬𝐢𝐯𝐞} \color{#a98f5c}{𝐢} \color{#9e805e}{𝐥𝐨𝐯𝐞} \color{#8b6b6b}{𝐭𝐨} \color{#775575}{𝐮𝐬𝐞} \color{#642e86}{𝐞𝐦𝐨𝐭𝐢𝐜𝐨𝐧𝐬}}$
+
+- $\text{\color{#c7b360}{𝐰𝐨𝐧𝐭} \color{#bda55c}{𝐜𝐡𝐚𝐭} \color{#a98f5c}{𝐭𝐨} \color{#9e805e}{𝐮} \color{#8b6b6b}{𝐟𝐢𝐫𝐬𝐭} \color{#775575}{𝐮𝐧𝐥𝐞𝐬𝐬} \color{#642e86}{𝐢𝐦} \color{#642e86}{𝐢𝐧𝐭𝐫𝐢𝐠𝐮𝐞𝐝} \color{#642e86}{𝐨𝐟} \color{#642e86}{𝐮}}$
+
+- $\text{\color{#c7b360}{𝐢𝐦} \color{#bda55c}{𝐧𝐨𝐭} \color{#b5a05c}{𝐜𝐨𝐦𝐟} \color{#a98f5c}{𝐡𝐚𝐯𝐢𝐧𝐠} \color{#9e805e}{𝐫𝐨𝐦𝐚𝐧𝐭𝐢𝐜} \color{#8b6b6b}{𝐢𝐧𝐭𝐢𝐦𝐚𝐜𝐲} \color{#84636c}{𝐛𝐫𝐨𝐮𝐠𝐡𝐭} \color{#7d5b71}{𝐮𝐩} \color{#775575}{𝐨𝐫} \color{#715078}{𝐞𝐯𝐞𝐧} \color{#6c457f}{𝐚𝐬} \color{#684081}{𝐚} \color{#642e86}{𝐣𝐨𝐤𝐞} \color{#642e86}{𝐢𝐟} \color{#642e86}{𝐜𝐨𝐧𝐬𝐭𝐚𝐧𝐭𝐥𝐲}}$
+
+- $\text{\color{#c7b360}{𝐢𝐦} \color{#bda55c}{𝐛𝐨𝐫𝐞𝐝} \color{#a98f5c}{𝐞𝐚𝐬𝐢𝐥𝐲} \color{#8b6b6b}{𝐰} \color{#775575}{𝐬𝐦𝐚𝐥𝐥} \color{#642e86}{𝐭𝐚𝐥𝐤𝐬}}$
+
+- $\text{\color{#c7b360}{𝐦𝐨𝐬𝐭𝐥𝐲} \color{#bda55c}{𝐬𝐢𝐥𝐞𝐧𝐭} \color{#a98f5c}{𝐚𝐥𝐥} \color{#9e805e}{𝐭𝐡𝐞} \color{#8b6b6b}{𝐭𝐢𝐦𝐞} \color{#84636c}{,} \color{#7d5b71}{𝐠𝐨} \color{#775575}{𝐭𝐚𝐥𝐤} \color{#715078}{𝐚𝐛𝐭} \color{#6c457f}{𝐦𝐲} \color{#684081}{𝐟𝐚𝐯} \color{#642e86}{𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬} \color{#642e86}{𝐢𝐧𝐬𝐭𝐞𝐚𝐝} \color{#642e86}{𝐭𝐨} \color{#642e86}{𝐠𝐞𝐭} \color{#642e86}{𝐦𝐲} \color{#642e86}{𝐚𝐭𝐭𝐞𝐧𝐭𝐢𝐨𝐧}}$
+
+- $\text{\color{#c7b360}{𝐢𝐝𝐦} \color{#bda55c}{𝐝𝐨𝐮𝐛𝐥𝐞𝐬} \color{#a98f5c}{,} \color{#9e805e}{𝐲𝐮𝐦𝐞𝐬𝐡𝐢𝐩𝐬} \color{#8b6b6b}{𝐝𝐨} \color{#84636c}{𝐢𝐧𝐭} \color{#7d5b71}{𝐰} \color{#775575}{𝐜𝐚𝐫𝐞} \color{#715078}{𝐨𝐫} \color{#6c457f}{𝐝𝐧𝐢} \color{#684081}{𝐜𝐨𝐦𝐩𝐥𝐞𝐭𝐞𝐥𝐲} \color{#642e86}{,} \color{#642e86}{𝐦𝐚𝐤𝐞} \color{#642e86}{𝐢𝐭} \color{#642e86}{𝐞𝐚𝐬𝐢𝐞𝐫} \color{#642e86}{𝐟𝐨𝐫} \color{#642e86}{𝐮𝐬} \color{#642e86}{𝐛𝐨𝐭𝐡.}}$
 
 <br>
 </table>
