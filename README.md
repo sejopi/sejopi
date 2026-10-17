@@ -60,11 +60,11 @@ $\text\large{\color{#c7b360}{৻  𝐥}\color{#b59b5a}{𝐢}\color{#9c805f}{𝐧
 
 $\text{\color{#c7b360}{灬} \color{#c1ab5c}{ⅰ}\color{#bba259}{.} \color{#b59a58}{𝐬}\color{#af9158}{𝐭}\color{#a9885a}{𝐫}\color{#a37f5c}{𝐚}\color{#9d765f}{𝐰}\color{#976d62}{𝐩}, \color{#916465}{ⅱ}\color{#8b6b6b}{.} \color{#85666e}{𝐚}\color{#7f6171}{𝐭}\color{#795b73}{𝐚}, \color{#735675}{ⅲ}\color{#6d516b}{.} \color{#6a4e6c}{𝐩}\color{#674b6d}{𝐫}\color{#64486e}{𝐨}\color{#61456f}{𝐧}\color{#5e4270}{𝐨}\color{#5b3f71}{𝐮}\color{#583c72}{𝐧}\color{#553973}{𝐬}\color{#523674}{.}\color{#4f3375}{𝐜}\color{#4c3076}{𝐜}, \color{#492d77}{ⅳ}\color{#462a78}{.} \color{#432779}{𝐠}\color{#402778}{𝐮}\color{#3d2677}{𝐧}\color{#392675}{𝐬}\color{#362674}{.}\color{#332673}{𝐥}\color{#302672}{𝐨}\color{#2d2671}{𝐥} \color{#642e86}{灬}}$
 
-<a href="https://sejopi.straw.page">
+<a href="https://hwobae.straw.page">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/icon%5B1%5D.png" alt="strawpage_link" height=“50” width="50">
-  <a href="https://sejopi.atabook.org/">
+  <a href="https://hwobae.atabook.org/">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/icon%5B2%5D.png" alt="atabook_link" width=50 height=“50” " >
-<a href="https://pronouns.cc/@sejopi">
+<a href="https://pronouns.cc/@hwobae">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/icon%5B3%5D.png" alt="prns cc" height=“50” width="50">
   <a href="https://guns.lol/sejopi">
   <img src="https://file.garden/ZroW4OcqSGtS0a5j/icon%5B4%5D.png" alt="guns lol" height=“50” width="50">
